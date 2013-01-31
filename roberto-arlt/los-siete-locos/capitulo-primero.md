@@ -9,39 +9,39 @@ order: 1
 
 Al abrir la puerta de la gerencia, encristalada de vidrios japoneses, Erdosain quiso retroceder; comprendió que estaba perdido, pero ya era tarde.
 
-Lo esperaban el director, un hombre de baja estatura, morrudo, con cabeza de jabalí, pelo gris cortado a «lo Humberto I», y una mirada implacable filtrándose por sus pupilas grises como las de un pez: Gualdi, el contador, pequeño, flaco, meloso, de ojos escrutadores, y el subgerente, hijo del hombre de cabeza de jabalí, un guapo mozo de treinta años, con el cabello totalmente blanco, cínico en su aspecto, la voz áspera y mirada dura como la de su progenitor. Estos tres personajes, el director inclinado sobre unas planillas, el subgerente recostado en una poltrona con la pierna balanceándose sobre el respaldar, y el señor Gualdi respetuosamente de pie junto al escritorio, no respondieron al saludo de Erdosain. Sólo el subgerente se limitó a levantar la cabeza:
+Lo esperaban el director, un hombre de baja estatura, morrudo, con cabeza de jabalí, pelo gris cortado a «lo Humberto I», y una mirada implacable filtrándose por sus pupilas grises como las de un pez; Gualdi, el contador, pequeño, flaco, meloso, de ojos escrutadores; y el subgerente, hijo del hombre de cabeza de jabalí, un guapo mozo de treinta años, con el cabello totalmente blanco, cínico en su aspecto, la voz áspera y mirada dura como la de su progenitor. Estos tres personajes, el director inclinado sobre unas planillas, el subgerente recostado en una poltrona con la pierna balanceándose sobre el respaldar, y el señor Gualdi respetuosamente de pie junto al escritorio, no respondieron al saludo de Erdosain. Sólo el subgerente se limitó a levantar la cabeza:
 
--Tenemos la denuncia de que usted es un estafador, que nos ha robado seiscientos pesos.
+–Tenemos la denuncia de que usted es un estafador, que nos ha robado seiscientos pesos.
 
--Con siete centavos -agregó el señor Gualdi, a tiempo que pasaba un secante sobre la firma que en una planilla había rubricado el director. Entonces, éste, como haciendo un gran esfuerzo sobre su cuello de toro, alzó la vista. Con los dedos trabados entre los ojales del chaleco, el director proyectaba una mirada sagaz, a través de los párpados entrecerrados, al tiempo que sin rencor examinaba el demacrado semblante de Erdosain, que permanecía im­pasible.
+–Con siete centavos –agregó el señor Gualdi, a tiempo que pasaba un secante sobre la firma que en una planilla había rubricado el director. Entonces, éste, como haciendo un gran esfuerzo sobre su cuello de toro, alzó la vista. Con los dedos trabados entre los ojales del chaleco, el director proyectaba una mirada sagaz, a través de los párpados entrecerrados, al tiempo que sin rencor examinaba el demacrado semblante de Erdosain, que permanecía im­pasible.
 
--¿Por qué anda usted tan mal vestido? -interrogó.
+–¿Por qué anda usted tan mal vestido? –interrogó.
 
--No gano nada como cobrador.
+–No gano nada como cobrador.
 
--¿Y el dinero que nos ha robado?
+–¿Y el dinero que nos ha robado?
 
--Yo no he robado nada. Son mentiras.
+–Yo no he robado nada. Son mentiras.
 
--Entonces, ¿está en condiciones de rendir cuentas, usted?
+–Entonces, ¿está en condiciones de rendir cuentas, usted?
 
--Si quieren, hoy mismo a mediodía.
+–Si quieren, hoy mismo a mediodía.
 
-La contestación lo salvó transitoriamente. Los tres hombres se consultaron con la mirada, y, por último, el subgerente, encogiéndose de hombros, dijo bajo la aquiescencia del padre:
+La contestación lo salvó transitoriamente. Los tres hombres se consultaron con la mirada y, por último, el subgerente, encogiéndose de hombros, dijo bajo la aquiescencia del padre:
 
--No... tiene tiempo hasta mañana a las tres. Tráigase las planillas y los recibos... Puede irse.
+–No... tiene tiempo hasta mañana a las tres. Tráigase las planillas y los recibos... Puede irse.
 
-Lo sorprendió tanto esa resolución que permaneció allí tristemente, de pie, mirándo­los a los tres. Sí, a los tres. Al señor Gualdi, que tanto lo había humillado a pesar de ser un socialista; al subgerente, que con insolencia había detenido los ojos en su corbata deshilachada: al director, cuya tiesa cabeza de jabalí rapado se volvía a él, filtrando una mirada cínica y obscena a través de la raya gris de los párpados entrecerrados.
+Lo sorprendió tanto esa resolución que permaneció allí tristemente, de pie, mirándo­los a los tres. Sí, a los tres. Al señor Gualdi, que tanto lo había humillado a pesar de ser un socialista; al subgerente, que con insolencia había detenido los ojos en su corbata deshilachada; y al director, cuya tiesa cabeza de jabalí rapado se volvía a él, filtrando una mirada cínica y obscena a través de la raya gris de los párpados entrecerrados.
 
-Sin embargo, Erdosain no se movía de allí... Quería decirles algo, no sabía cómo, pero algo que les diera a comprender a ellos toda la desdicha inmensa que pesaba sobre su vida; y permanecía así, de pie, triste, con el cubo negro de la caja de hierro ante los ojos, sintiendo que a medida que pasaban los minutos su espalda se arqueaba más, mientras que nerviosamente retorcía el ala de su sombrero negro, y la mirada se le hacía más huida y triste. Luego, bruscamente, preguntó.
+Sin embargo, Erdosain no se movía de allí... Quería decirles algo, no sabía cómo, pero algo que les diera a comprender a ellos toda la desdicha inmensa que pesaba sobre su vida; y permanecía así, de pie, triste, con el cubo negro de la caja de hierro ante los ojos, sintiendo que a medida que pasaban los minutos su espalda se arqueaba más, mientras que nerviosamente retorcía el ala de su sombrero negro, y la mirada se le hacía más huida y triste. Luego, bruscamente, preguntó:
 
--¿Entonces, puedo irme?
+–¿Entonces, puedo irme?
 
--Sí...
+–Sí...
 
--No... Entréguele los recibos a Suárez y mañana a las tres esté aquí, sin falta, con todo.
+–No... Entréguele los recibos a Suárez y mañana a las tres esté aquí, sin falta, con todo.
 
--Sí... todo... -y volviéndose, salió sin saludar.
+–Sí... todo... –y volviéndose, salió sin saludar.
 
 Por la calle Chile bajó hasta Paseo Colón. Sentíase invisiblemente acorralado. El sol descubría los asquerosos interiores de la calle en declive. Distintos pensamientos bullían en él, tan desemejantes, que el trabajo de clasificarlos le hubiera ocupado muchas horas.
 
@@ -57,7 +57,7 @@ Este círculo de silencio y de tinieblas interrumpía la continuidad de sus idea
 
 Pensaba telegráficamente, suprimiendo preposiciones, lo cual es enervante. Conoció horas muertas en las que hubiera podido cometer un delito de cualquier naturaleza, sin que por ello tuviera la menor noción de su responsabilidad. Lógicamente, un juez no hubiera entendido tal fenómeno. Pero él ya estaba vacío, era una cáscara de hombre movida por el automatismo de la costumbre.
 
-Si continuó trabajando en la Compañía Azucarera no fue para robar más cantidades de dinero, sino porque esperaba un acontecimiento extraordinario -inmensamente extraordi­nario- que diera un giro inesperado a su vida y lo salvara de la catástrofe que veía acercarse a su puerta.
+Si continuó trabajando en la Compañía Azucarera no fue para robar más cantidades de dinero, sino porque esperaba un acontecimiento extraordinario –inmensamente extraordi­nario– que diera un giro inesperado a su vida y lo salvara de la catástrofe que veía acercarse a su puerta.
 
 Esta atmósfera de sueño y de inquietud que lo hacía circular a través de los días como un sonámbulo, la denominaba Erdosain, «la zona de la angustia».
 
@@ -67,25 +67,25 @@ Esta zona de angustia era la consecuencia del sufrimiento de los hombres. Y como
 
 Tal era la explicación que Erdosain se daba cuando sentía las primeras náuseas de la pena.
 
--¿Qué es lo que hago con mi vida? -decíase entonces, queriendo quizás aclarar con esta pregunta los orígenes de la ansiedad que le hacía apetecer una existencia en la cual el mañana no fuera la continuación de hoy con su medida de tiempo, sino algo distinto y siem­pre inesperado como en los desenvolvimientos de las películas norteamericanas, donde el pordiosero de ayer es el jefe de una sociedad secreta de hoy, y la dactilógrafa aventurera una multimillonaria de incógnito.
+–¿Qué es lo que hago con mi vida? –decíase entonces, queriendo quizás aclarar con esta pregunta los orígenes de la ansiedad que le hacía apetecer una existencia en la cual el mañana no fuera la continuación de hoy con su medida de tiempo, sino algo distinto y siem­pre inesperado como en los desenvolvimientos de las películas norteamericanas, donde el pordiosero de ayer es el jefe de una sociedad secreta de hoy, y la dactilógrafa aventurera una multimillonaria de incógnito.
 
-Dicha necesidad de maravillas que no tenía posibles satisfacciones -ya que él era un inventor fracasado y un delincuente al margen de la cárcel- le dejaba en las cavilaciones subsiguientes una rabiosa acidez y los dientes sensibles como después de masticar limón.
+Dicha necesidad de maravillas que no tenía posibles satisfacciones –ya que él era un inventor fracasado y un delincuente al margen de la cárcel– le dejaba en las cavilaciones subsiguientes una rabiosa acidez y los dientes sensibles como después de masticar limón.
 
 En estas circunstancias compaginaba insensateces. Llegó a imaginarse que los ricos, aburridos de escuchar las quejas de los miserables, construyeron jaulones tremendos que arrastraban cuadrillas de caballos. Verdugos escogidos por su fortaleza cazaban a los tristes con lazo de acogotar perros, llegándole a ser visible cierta escena: una madre, alta y desmelenada, corría tras el jaulón de donde, entre los barrotes, la llamaba su hijo tuerto, hasta que un «perrero», aburrido de oírla gritar, la desmayó a fuerza de golpes en la cabeza, con el mango del lazo.
 
 Desvanecida esta pesadilla, Erdosain se decía horrorizado de sí mismo:
 
--¿Pero qué alma, qué alma es la que tengo yo? -Y como su imaginación conservaba el impulso motor que le había impreso la pesadilla, continuaba: -Yo debo haber nacido para lacayo, uno de esos lacayos perfumados y viles con quienes las prostitutas ricas se hacen prender los broches del pórtasenos, mientras el amante fuma un cigarro recostado en el sofá.
+–¿Pero qué alma, qué alma es la que tengo yo? –Y como su imaginación conservaba el impulso motor que le había impreso la pesadilla, continuaba: –Yo debo haber nacido para lacayo, uno de esos lacayos perfumados y viles con quienes las prostitutas ricas se hacen prender los broches del portasenos, mientras el amante fuma un cigarro recostado en el sofá.
 
-Y nuevamente sus pensamientos caían de rebote en una cocina situada en los sótanos de una lujosísima mansión. En torno de la mesa movíanse dos mucamas, además del chofer y un árabe vendedor de ligas y perfumes. En dicha circunstancia él gastaría un saco negro que no alcanzaba a cubrirle el trasero, y corbatita blanca. Súbitamente lo llamaría «el señor», un hombre que era su doble físico, pero que no se afeitaba los bigotes y usaba lentes. El no sabía qué es lo que deseaba de él su patrón, mas nunca olvidaría la mirada singular que éste le dirigió al salir de la estancia. Y volvía a la cocina para conversar de suciedades, con el chofer que, ante el regocijo de las mucamas y el silencio del árabe pederasta, contaba como había pervertido a la hija de una gran señora, cierta criatura de pocos años.
+Y nuevamente sus pensamientos caían de rebote en una cocina situada en los sótanos de una lujosísima mansión. En torno de la mesa movíanse dos mucamas, además del chofer y un árabe vendedor de ligas y perfumes. En dicha circunstancia él gastaría un saco negro que no alcanzaba a cubrirle el trasero, y corbatita blanca. Súbitamente lo llamaría «el señor», un hombre que era su doble físico, pero que no se afeitaba los bigotes y usaba lentes. Él no sabía qué era lo que deseaba de él su patrón, mas nunca olvidaría la mirada singular que éste le dirigió al salir de la estancia. Y volvía a la cocina para conversar de suciedades, con el chofer que, ante el regocijo de las mucamas y el silencio del árabe pederasta, contaba cómo había pervertido a la hija de una gran señora, cierta criatura de pocos años.
 
 Y volvía a repetirse:
 
--Sí, yo soy un lacayo. Tengo el alma de un verdadero lacayo -y apretaba los dientes de satisfacción al insultarse y rebajarse de ese modo ante sí mismo.
+–Sí, yo soy un lacayo. Tengo el alma de un verdadero lacayo –y apretaba los dientes de satisfacción al insultarse y rebajarse de ese modo ante sí mismo.
 
 Otras veces se veía saliendo de la alcoba de una soltera vieja y devota, llevando con unción un pesado orinal, mas en ese momento le encontraba un sacerdote asiduo de la casa que sonriendo, sin inmutarse, le decía:
 
--¿Cómo vamos de deberes religiosos, Ernesto? -Y él, Ernesto, Ambrosio o José, viviría torvamente una vida de criado obsceno e hipócrita.
+–¿Cómo vamos de deberes religiosos, Ernesto? –Y él, Ernesto, Ambrosio o José, viviría torvamente una vida de criado obsceno e hipócrita.
 
 Un temblor de locura le estremecía cuando pensaba en esto.
 
@@ -95,13 +95,13 @@ Porque a instantes su afán era de humillación, como el de los santos que besab
 
 Mas cuando desaparecían de él esas imágenes, y sólo quedaba en su conciencia el «deseo de conocer el sentido de la vida», decíase:
 
--No, yo no soy un lacayo... de verdad que no lo soy... -y hubiera querido ir a pedirle a su esposa que se compadeciera de él, que tuviera piedad de sus pensamientos tan horribles y bajos. Mas el recuerdo de que por ella se había visto obligado a sacrificarse tantas veces, le colmaba de un rencor sordo, y en esas circunstancias hubiera querido matarla.
+–No, yo no soy un lacayo... de verdad que no lo soy... –Y hubiera querido ir a pedirle a su esposa que se compadeciera de él, que tuviera piedad de sus pensamientos tan horribles y bajos. Mas el recuerdo de que por ella se había visto obligado a sacrificarse tantas veces, le colmaba de un rencor sordo, y en esas circunstancias hubiera querido matarla.
 
 Y bien sabía que algún día ella se entregaría a otro y aquél era un sumado elemento más a los otros factores que componían su angustia.
 
 De allí que cuando defraudó los primeros veinte pesos, se asombró de la facilidad con que se podía hacer «eso», quizá porque antes de robar creyó tener que vencer una serie de escrúpulos que en sus actuales condiciones de vida no podía conocer. Decíase luego:
 
--Es cuestión de tener voluntad y hacerlo, nada más.
+–Es cuestión de tener voluntad y hacerlo, nada más.
 
 Y «eso» aliviaba la vida, con «eso» tenía dinero que le causaba sensaciones extrañas porque nada le costaba ganarlo. Y lo asombroso para Erdosain no consistía en el robo, sino que no se revelara en su semblante que era un ladrón. Se vio obligado a robar porque ganaba un mensual exiguo. Ochenta, cien, ciento veinte pesos, pues este importe dependía de las cantidades cobradas, ya que su sueldo se componía de una comisión por cada ciento cobrado.
 
@@ -109,11 +109,11 @@ Así, hubo días que llevó de cuatro a cinco mil pesos, mientras él, malamente
 
 Su esposa le recriminaba las privaciones que cotidianamente soportaba; él escucha­ba en silencio sus reproches y luego, a solas, se decía:
 
--¿Qué es lo que puedo hacer yo?
+–¿Qué es lo que puedo hacer yo?
 
 Cuando tuvo la idea, cuando una pequeñita idea lo cercioró de que podía defraudar a sus patrones, experimentó la alegría de un inventor. ¿Robar? ¿Cómo no se le había ocurrido antes?
 
-Y Erdosain se asombró de su incapacidad llegando hasta reprocharse falta de inicia­tiva, pues en esa época (tres meses antes de los sucesos narrados) sufría necesidades de toda naturaleza, a pesar de que diariamente pasaban por sus manos crecidas cantidades de dinero.
+Y Erdosain se asombró de su incapacidad llegando hasta reprocharse falta de inicia­tiva, pues en esa época –tres meses antes de los sucesos narrados– sufría necesidades de toda naturaleza, a pesar de que diariamente pasaban por sus manos crecidas cantidades de dinero.
 
 Y lo que facilitó sus maniobras fraudulentas fue la falta de administración que había en la Compañía Azucarera.
 
@@ -125,21 +125,21 @@ Sin duda alguna su vida era extraña, porque a veces una esperanza apresurada lo
 
 Entonces tomaba un ómnibus y bajaba en Palermo o en Belgrano. Recorría pensativamente las silenciosas avenidas, diciéndose:
 
--Me verá una doncella, una niña alta, pálida y concentrada, que por capricho maneje su Rolls-Royce. Paseará tristemente. De pronto me mira y comprende que yo seré el único amor de toda la vida, y esa mirada que era un ultraje para todos los desdichados, se posará en mí, cubiertos los ojos de lágrimas.
+–Me verá una doncella, una niña alta, pálida y concentrada, que por capricho maneje su Rolls-Royce. Paseará tristemente. De pronto me mira y comprende que yo seré el único amor de toda la vida, y esa mirada que era un ultraje para todos los desdichados, se posará en mí, cubiertos los ojos de lágrimas.
 
 El ensueño se desenroscaba sobre esta necedad, mientras lentamente se deslizaba a la sombra de las altas fachadas y de los verdes plátanos, que en los blancos mosaicos des­componían su sombra en triángulos.
 
--Será millonada, pero yo le diré: «Señorita, no puedo tocarla. Aunque usted quisiera entregárseme, no la tomaría». Ella me mirará sorprendida; entonces yo le diré: «Y todo es inútil, ¿sabe?, es inútil, porque estoy casado». Pero ella le ofrecerá una fortuna a Elsa para que se divorcie de mí, y luego nos casaremos, y en su yate nos iremos al Brasil.
+–Será millonada, pero yo le diré: «Señorita, no puedo tocarla. Aunque usted quisiera entregárseme, no la tomaría». Ella me mirará sorprendida; entonces yo le diré: «Y todo es inútil, ¿sabe?, es inútil, porque estoy casado». Pero ella le ofrecerá una fortuna a Elsa para que se divorcie de mí, y luego nos casaremos, y en su yate nos iremos al Brasil.
 
-Y la simplicidad de este sueno se enriquecía con el nombre de Brasil que, áspero y caliente, proyectaba ante él una costa sonrosada y blanca, cortando con aristas y perpendicu­lares al mar tiernamente azul. Ahora la doncella había perdido su empaque trágico y era -bajo la seda blanca de su vestido sencillo como el de una colegiala- una criatura sonriente, tímida y atrevida a la vez.
+Y la simplicidad de este sueño se enriquecía con el nombre de Brasil que, áspero y caliente, proyectaba ante él una costa sonrosada y blanca, cortando con aristas y perpendicu­lares al mar tiernamente azul. Ahora la doncella había perdido su empaque trágico y era –bajo la seda blanca de su vestido sencillo como el de una colegiala– una criatura sonriente, tímida y atrevida a la vez.
 
 Y Erdosain pensaba:
 
--No tendremos nunca contacto sexual. Para hacer más duradero nuestro amor, refre­naremos el deseo, y tampoco la besaré en la boca, sino en la mano.
+–No tendremos nunca contacto sexual. Para hacer más duradero nuestro amor, refre­naremos el deseo, y tampoco la besaré en la boca, sino en la mano.
 
 Y se imaginaba la felicidad que purificaría su vida, si tal imposible aconteciera, pero era más fácil detener la tierra en su marcha que realizar tal absurdo. Entonces decíase entris­tecido de un coraje vago:
 
--Bueno, seré «cafisho». -Y de pronto un horror más terrible que los otros horrores le destornillaba la conciencia. El tenía la sensación de que todas las muescas de su alma sangra­ban como bajo la mecha de un torno, y paralizado el entendimiento, embotado de angustia, iba a loca ventura en busca de lenocinios. Entonces supo el terror del fraudulento, el terror luminoso que es como el estallido de un gran día de sol en la convexidad de una salitrera.
+–Bueno, seré «cafisho». –Y de pronto un horror más terrible que los otros horrores le destornillaba la conciencia. El tenía la sensación de que todas las muescas de su alma sangra­ban como bajo la mecha de un torno, y paralizado el entendimiento, embotado de angustia, iba a loca ventura en busca de lenocinios. Entonces supo el terror del fraudulento, el terror luminoso que es como el estallido de un gran día de sol en la convexidad de una salitrera.
 
 Se dejó arrastrar por los impulsos que retuercen al hombre que se siente por primera vez a las puertas de la cárcel, impulsos ciegos que conducen a un desdichado a jugarse la vida en un naipe o en una mujer. Quizá buscando en el naipe y en la hembra una consolación brutal y triste, quizá buscando en todo lo más vil y hundido cierta certidumbre de pureza que lo salvará definitivamente.
 
@@ -151,7 +151,7 @@ Entraba con la muerte en el alma. En el patio, bajo el recuadrado cielo azul, ha
 
 Y la meretriz le gritaba desde la puerta entreabierta del dormitorio, en cuyo interior se escuchaba el ruido de un hombre que se vestía:
 
--¿Vamos, querido? -y Erdosain entraba al otro dormitorio, zumbándole los oídos y con una niebla girante en las pupilas.
+–¿Vamos, querido? –y Erdosain entraba al otro dormitorio, zumbándole los oídos y con una niebla girante en las pupilas.
 
 Luego se recostaba en el lecho barnizado de color de hígado, encima de las mantas sucias por los botines, que protegían la colcha.
 
@@ -159,11 +159,11 @@ Súbitamente sentía deseos de llorar, de preguntarle a esa horrible morcona qu�
 
 Y en tanto la prostituta dejaba estar la movediza mano encima de sus ropas. Erdosain se decía:
 
--¿Qué he hecho de mi vida?
+–¿Qué he hecho de mi vida?
 
 Una rayo de sol sesgaba el cristal de la banderola cubierta de telas de araña, y la meretriz, con la mejilla apoyada en la almohada y una pierna cargada sobre la suya, movía lentamente la mano mientras él entristecido se decía:
 
--¿Qué es lo que he hecho de mi vida?
+–¿Qué es lo que he hecho de mi vida?
 
 Súbitamente el remordimiento le entristecía el alma, se acordaba de su esposa que por falta de dinero tenía que lavarse la ropa a pesar de estar enferma, y entonces, asqueado de sí mismo, saltaba del lecho, le entregaba el dinero a la prostituta, y sin haberla usado, huía hacia otro infierno a gastar el dinero que no le pertenecía, a hundirse más en su locura que aullaba a todas horas.
 
@@ -181,109 +181,109 @@ Lo vidrioso de sus ojos saltones, su gruesa nariz ganchuda, las mejillas flácid
 
 Enfundaba su macizo cuerpazo en un traje color de canela, y, a momentos, inclinan­do el rostro apoyaba los dientes en el puño de marfil de su bastón.
 
-Por ese desgano y la expresión canalla de su aburrimiento tenía el aspecto de un tratante de blancas. Inesperadamente sus ojos se encontraron con los de Erdosain que iba a su encuentro, y el semblante del farmacéutico se iluminó con una sonrisa pueril. Aun sonreía cuando le estrechaba la mano a Erdosain, que pensó:
+Por ese desgano y por la expresión canalla de su aburrimiento tenía el aspecto de un tratante de blancas. Inesperadamente sus ojos se encontraron con los de Erdosain que iba a su encuentro, y el semblante del farmacéutico se iluminó con una sonrisa pueril. Aun sonreía cuando le estrechaba la mano a Erdosain, que pensó:
 
--¡Cuántas lo han querido por esa sonrisa!
+–¡Cuántas lo han querido por esa sonrisa!
 
 Involuntariamente, la primera pregunta de Erdosain fue:
 
--Y, ¿te casaste con Hipólita?..
+–Y, ¿te casaste con Hipólita?...
 
--Sí, pero no te imaginas el bochinche que se armó en casa...
+–Sí, pero no te imaginas el bochinche que se armó en casa...
 
--¿Qué... supieron que era de «la vida»?
+–¿Qué... supieron que era de «la vida»?
 
--No... eso lo dijo ella después. ¿Vos sabes que Hipólita antes de «hacer la calle» trabajó de sirvienta?...
+–No... eso lo dijo ella después. ¿Vos sabés que Hipólita antes de «hacer la calle» trabajó de sirvienta?...
 
--¿Y?..
+–¿Y?...
 
--Poco después que nos casamos fuimos mamá, yo, Hipólita y mi hermanita a lo de una familia. ¿Te das cuenta qué memoria la de esa gente? Después de diez años reconocieron a Hipólita que fue sirvienta de ellos. ¡Algo que no tiene nombre! Yo y ella nos vinimos por un camino y mamá y Juana por otro. Toda la historia que yo inventé para justificar mi casamien­to, se vino abajo.
+–Poco después que nos casamos fuimos mamá, yo, Hipólita y mi hermanita a lo de una familia. ¿Te das cuenta qué memoria la de esa gente? Después de diez años reconocieron a Hipólita que fue sirvienta de ellos. ¡Algo que no tiene nombre! Yo y ella nos vinimos por un camino y mamá y Juana por otro. Toda la historia que yo inventé para justificar mi casamien­to, se vino abajo.
 
--¿Y por qué confesó que fue prostituta?
+–¿Y por qué confesó que fue prostituta?
 
--Un momento de rabia. ¿Pero no tenía razón? ¿No se había regenerado? ¿No me aguantaba a mí, a mí, que les he sacado canas verdes a ellos?
+–Un momento de rabia. ¿Pero no tenía razón? ¿No se había regenerado? ¿No me aguantaba a mí, a mí, que les he sacado canas verdes a ellos?
 
--¿Y cómo te va?
+–¿Y cómo te va?
 
--Muy bien... La farmacia da setenta pesos diarios. En Pico no hay otro que conozca la Biblia como yo. Lo desafié al cura a una controversia y no quiso agarrar viaje.
+–Muy bien... La farmacia da setenta pesos diarios. En Pico no hay otro que conozca la Biblia como yo. Lo desafié al cura a una controversia y no quiso agarrar viaje.
 
 Erdosain miró repentinamente esperanzado a su extraño amigo. Luego le preguntó:
 
--¿Jugás siempre?
+–¿Jugás siempre?
 
--Sí, y Jesús, por mi mucha inocencia, me ha revelado el secreto de la ruleta.
+–Sí, y Jesús, por mi mucha inocencia, me ha revelado el secreto de la ruleta.
 
--¿Qué es eso?
+–¿Qué es eso?
 
--Vos no sabes... el gran secreto... una ley de sincronismo estático... Ya fui dos veces a Montevideo y gané mucho dinero, pero esta noche salimos con Hipólita para hacer saltar la banca.
+–Vos no sabés... el gran secreto... una ley de sincronismo estático... Ya fui dos veces a Montevideo y gané mucho dinero, pero esta noche salimos con Hipólita para hacer saltar la banca.
 
 Y de pronto lanzó la embrollada explicación:
 
--Mirá, le jugás hipotéticamente una cantidad a las tres primeras bolas, una a cada docena. Si no salen tres docenas distintas se produce forzosamente el desequilibrio. Marcas, entonces, con un punto la docena salida. Para las tres bolas que siguen quedará igual la docena que marcaste. Claro está que el cero no se cuenta y que jugás a las docenas en series de tres bolas. Aumentas entonces una unidad en la docena que no tiene alguna cruz, dismi­nuís en una, quiero decir, en dos unidades la docena que tiene tres cruces, y esta sola base te permite deducir la unidad menor que las mayores y se juega la diferencia a la docena o a las docenas que resulten.
+–Mirá, le jugás hipotéticamente una cantidad a las tres primeras bolas, una a cada docena. Si no salen tres docenas distintas se produce forzosamente el desequilibrio. Marcas, entonces, con un punto la docena salida. Para las tres bolas que siguen quedará igual la docena que marcaste. Claro está que el cero no se cuenta y que jugás a las docenas en series de tres bolas. Aumentás entonces una unidad en la docena que no tiene alguna cruz, dismi­nuís en una, quiero decir, en dos unidades la docena que tiene tres cruces, y esta sola base te permite deducir la unidad menor que las mayores y se juega la diferencia a la docena o a las docenas que resulten.
 
 Erdosain no había entendido. Contenía su deseo de reír a medida que su esperanza crecía, pues era indudable que Ergueta estaba loco. Por eso replicó:
 
--Jesús sabe revelar esos secretos a los que tienen el alma llena de santidad.
+–Jesús sabe revelar esos secretos a los que tienen el alma llena de santidad.
 
--Y también a los idiotas -arguyó Ergueta clavando en él una mirada burlona, a medi­da que guiñaba el párpado izquierdo-. Desde que yo me ocupo de esas cosas misteriosas, he hecho macanas grandes como casas, por ejemplo, casarme con esa atorranta...
+–Y también a los idiotas –arguyó Ergueta clavando en él una mirada burlona, a medi­da que guiñaba el párpado izquierdo–. Desde que yo me ocupo de esas cosas misteriosas, he hecho macanas grandes como casas, por ejemplo, casarme con esa atorranta...
 
--¿Y sos feliz con ella?
+–¿Y sos feliz con ella?
 
--...creer en la bondad de la gente, cuando todo el mundo lo que tira es a hundirlo a uno y hacerle fama de loco...
+–...creer en la bondad de la gente, cuando todo el mundo lo que tira es a hundirlo a uno y hacerle fama de loco...
 
 Erdosain, impaciente, frunció el ceño, luego:
 
--¿Cómo no querés que te tengan por loco? Vos fuiste, según tus propias palabras, un gran pecador. Y de pronto te convertís, te casas con una prostituta porque eso está escrito en la Biblia; hablas a la gente del cuarto sello y del caballo amarillo... claro... la gente tiene que creer que estás loco porque esas cosas no las conoces ni por las tapas. ¿A mí no me tienen también por loco porque he dicho que habría de instalar una tintorería para perros y metalizar los puños de las camisas?... Pero yo no creo que estés loco. No, no lo creo. Lo que hay en vos es un exceso de vida, de caridad y de amor al prójimo. Ahora, eso de que Jesús te haya revelado el secreto de la ruleta me parece medio absurdo...
+–¿Cómo no querés que te tengan por loco? Vos fuiste, según tus propias palabras, un gran pecador. Y de pronto te convertís, te casás con una prostituta porque eso está escrito en la Biblia; hablás a la gente del cuarto sello y del caballo amarillo... claro... la gente tiene que creer que estás loco porque esas cosas no las conocés ni por las tapas. ¿A mí no me tienen también por loco porque he dicho que habría de instalar una tintorería para perros y metalizar los puños de las camisas?... Pero yo no creo que estés loco. No, no lo creo. Lo que hay en vos es un exceso de vida, de caridad y de amor al prójimo. Ahora, eso de que Jesús te haya revelado el secreto de la ruleta me parece medio absurdo...
 
--Cinco mil pesos gané en las dos veces...
+–Cinco mil pesos gané en las dos veces...
 
--Pongamos que sea cierto. Pero lo que te salva a vos no es el secreto de la ruleta, sino el hecho de tener una hermosa alma. Sos capaz de hacer el bien, de emocionarte ante un hombre que está a las puertas de la cárcel...
+–Pongamos que sea cierto. Pero lo que te salva a vos no es el secreto de la ruleta, sino el hecho de tener una hermosa alma. Sos capaz de hacer el bien, de emocionarte ante un hombre que está a las puertas de la cárcel...
 
--Eso sí que es verdad -interrumpió Ergueta-. Fíjate que hay otro farmacéutico en el pueblo que es un tacaño viejo. El hijo le robó cinco mil pesos... y después vino a pedirme un consejo. ¿Sabes lo que le aconsejé yo? Que lo amenazara al padre con hacerlo meter preso por vender cocaína si lo denunciaba.
+–Eso sí que es verdad –interrumpió Ergueta–. Fijate que hay otro farmacéutico en el pueblo que es un tacaño viejo. El hijo le robó cinco mil pesos... y después vino a pedirme un consejo. ¿Sabés lo que le aconsejé yo? Que lo amenazara al padre con hacerlo meter preso por vender cocaína si lo denunciaba.
 
--¿Ves cómo te comprendo yo? Vos querías salvar el alma del viejo haciéndole come­ter un pecado al hijo, pecado del que éste se arrepentiría toda la vida. ¿No es así?
+–¿Ves cómo te comprendo yo? Vos querías salvar el alma del viejo haciéndole come­ter un pecado al hijo, pecado del que éste se arrepentiría toda la vida. ¿No es así?
 
--Sí, en la Biblia está escrito: «Y el padre se levantará contra el hijo contra el padre»...
+–Sí, en la Biblia está escrito: «Y el padre se levantará contra el hijo contra el padre»...
 
--¿Ves? Yo te entiendo a vos. No sé para lo que estás predestinado... El destino de los hombres es siempre incierto. Pero creo que tenes por delante un camino magnífico. ¿Sabes? Un camino raro...
+–¿Ves? Yo te entiendo a vos. No sé para lo que estás predestinado... El destino de los hombres es siempre incierto. Pero creo que tenés por delante un camino magnífico. ¿Sabés? Un camino raro...
 
--Seré el Rey del Mundo. ¿Te das cuenta? Ganaré en todas las ruletas el dinero que quiera. Iré a Palestina, a Jerusalén y reedificaré el gran templo de Salomón...
+–Seré el Rey del Mundo. ¿Te das cuenta? Ganaré en todas las ruletas el dinero que quiera. Iré a Palestina, a Jerusalén y reedificaré el gran templo de Salomón...
 
--Y salvarás de la angustia a mucha gente buena. Cuántos hay que por necesidad defraudaron a sus patrones, robaron dinero que les estaba confiado. ¿Sabes? La angustia... Un tipo angustiado no sabe lo que hace... Hoy roba un peso, mañana cinco, pasado veinte, y cuando se acuerda debe cientos de pesos. Y el hombre piensa. Es poco... y de pronto se encuentra con que han desaparecido quinientos, no, seiscientos pesos con siete centavos. ¿Te das cuenta? Esa es la gente que hay que salvar... a los angustiados, a los fraudulentos.
+–Y salvarás de la angustia a mucha gente buena. Cuántos hay que por necesidad defraudaron a sus patrones, robaron dinero que les estaba confiado. ¿Sabés? La angustia... Un tipo angustiado no sabe lo que hace... Hoy roba un peso, mañana cinco, pasado veinte, y cuando se acuerda debe cientos de pesos. Y el hombre piensa. Es poco... y de pronto se encuentra con que han desaparecido quinientos, no, seiscientos pesos con siete centavos. ¿Te das cuenta? Esa es la gente que hay que salvar... a los angustiados, a los fraudulentos.
 
 El farmacéutico meditó un instante. Una expresión grave se disolvió en la superficie de su semblante abotargado; luego, calmosamente, agregó:
 
--Tenes razón... el mundo está lleno de «turros», de infelices... pero ¿cómo remediar­lo? Esto es lo que a mí me preocupa. ¿De qué forma presentarle nuevamente las verdades sagradas a esa gente que no tiene fe?...
+–Tenés razón... el mundo está lleno de «turros», de infelices... pero ¿cómo remediar­lo? Esto es lo que a mí me preocupa. ¿De qué forma presentarle nuevamente las verdades sagradas a esa gente que no tiene fe?...
 
--Pero si la gente lo que necesita es plata... no sagradas verdades.
+–Pero si la gente lo que necesita es plata... no sagradas verdades.
 
--No, es que eso pasa por el olvido de las Escrituras. Un hombre que lleva en sí las sagradas verdades no lo roba a su patrón, no defrauda a la compañía en que trabaja, no se coloca en situación de ir a la cárcel del hoy a la mañana.
+–No, es que eso pasa por el olvido de las Escrituras. Un hombre que lleva en sí las sagradas verdades no lo roba a su patrón, no defrauda a la compañía en que trabaja, no se coloca en situación de ir a la cárcel del hoy a la mañana.
 
 Luego se rascó pensativamente la nariz y continuó:
 
--Además, ¿quién no te dice que eso sea para bien? ¿Quiénes van a hacer la revolu­ción social, sino los estafadores, los desdichados, los asesinos, los fraudulentos, toda la cana­lla que sufre abajo sin esperanza alguna? ¿O te crees que la revolución la van a hacer los cagatintas y los tenderos?
+–Además, ¿quién no te dice que eso sea para bien? ¿Quiénes van a hacer la revolu­ción social, sino los estafadores, los desdichados, los asesinos, los fraudulentos, toda la cana­lla que sufre abajo sin esperanza alguna? ¿O te creés que la revolución la van a hacer los cagatintas y los tenderos?
 
--De acuerdo, de acuerdo... pero, en tanto llega la revolución social, ¿qué hace ese desdichado? ¿Qué hago yo?
+–De acuerdo, de acuerdo... pero, en tanto llega la revolución social, ¿qué hace ese desdichado? ¿Qué hago yo?
 
 Y Erdosain, tomándolo de un brazo a Ergueta, exclamó:
 
--Porque yo estoy a un paso de la cárcel, ¿sabes? He robado seiscientos pesos con siete centavos.
+–Porque yo estoy a un paso de la cárcel, ¿sabés? He robado seiscientos pesos con siete centavos.
 
 El farmacéutico guiñó lentamente el párpado izquierdo y luego dijo:
 
--No te aflijas. Los tiempos de tribulación de que hablan las Escrituras han llegado. ¿No me he casado yo con la Coja, con la Ramera? ¿No se ha levantado el hijo contra el padre y el padre contra el hijo? La revolución está más cerca de lo que la desean los hombres. ¿No sos vos el fraudulento y el lobo que diezma el rebaño?...
+–No te aflijas. Los tiempos de tribulación de que hablan las Escrituras han llegado. ¿No me he casado yo con la Coja, con la Ramera? ¿No se ha levantado el hijo contra el padre y el padre contra el hijo? La revolución está más cerca de lo que la desean los hombres. ¿No sos vos el fraudulento y el lobo que diezma el rebaño?...
 
--Pero, decíme, ¿vos no podes prestarme esos seiscientos pesos?
+–Pero, decíme, ¿vos no podés prestarme esos seiscientos pesos?
 
 El otro movió lentamente la cabeza:
 
--Te juro que los debo.
+–Te juro que los debo.
 
 De pronto ocurrió algo inesperado.
 
 El farmacéutico se levantó, extendió el brazo y haciendo chasquear la yema de los dedos, exclamó ante el mozo del café que miraba asombrado la escena:
 
--Rajá, turrito, rajá.
+–Rajá, turrito, rajá.
 
 Erdosain, rojo de vergüenza, se alejó. Cuando en la esquina volvió la cabeza, vio que Ergueta movía los brazos hablando con el camarero.
 
@@ -291,7 +291,7 @@ Erdosain, rojo de vergüenza, se alejó. Cuando en la esquina volvió la cabeza,
 
 ## El odio
 
-Su vida se desangraba. Toda su pena descomprimida extendíase hacia el horizonte entrevistó a través de los cables y de los «trolleys» de los tranvías y súbitamente tuvo la sensación de que caminaba sobre su angustia convertida en una alfombra. Así como los caballos que, desventados por un toro se enredan en sus propias entrañas, cada paso que daba le dejaba sin sangre los pulmones. Respiraba despacio y desesperaba de llegar jamás. ¿A dónde? Ni lo sabía.
+Su vida se desangraba. Toda su pena descomprimida se extendía hacia el horizonte entrevisto a través de los cables y de los «trolleys» de los tranvías y súbitamente tuvo la sensación de que caminaba sobre su angustia convertida en una alfombra. Así como los caballos que, desventados por un toro se enredan en sus propias entrañas, cada paso que daba le dejaba sin sangre los pulmones. Respiraba despacio y desesperaba de llegar jamás. ¿A dónde? Ni lo sabía.
 
 En la calle Piedras se sentó en el umbral de una casa desocupada. Estuvo varios minutos, luego echó a caminar rápidamente y el sudor corría por su semblante como en los días de excesiva temperatura.
 
@@ -299,9 +299,9 @@ Así llegó hasta Cerrito y Lavalle.
 
 Al poner una mano en el bolsillo encontró que tenía un puñado de billetes y entonces entró en el bar Japonés. Cocheros y rufianes hacían rueda en torno de las mesas. Un negro con cuello palomita y alpargatas negras se arrancaba los parásitos del sobaco, y tres «polacos» polacos, con gruesos anillos de oro en los dedos, en su jerigonza, trataban de prostíbulos y alcahuetas. En otro rincón varios choferes de taxímetros jugaban a los naipes. El negro que se despiojaba miraba en redor, como solicitando con los ojos que el público ratificara su opera­ción, pero nadie hacía caso de él.
 
-Erdosain, pidió café, apoyó la frente en la mano y se quedó mirando el mármol.
+Erdosain pidió café, apoyó la frente en la mano y se quedó mirando el mármol.
 
--¿De dónde sacar los seiscientos pesos?
+–¿De dónde sacar los seiscientos pesos?
 
 Luego pensó en Gregorio Barsut, el primo de su mujer.
 
@@ -309,19 +309,17 @@ Ya no le preocupaba la actitud de Ergueta. Ante sus ojos se materializaba la tac
 
 Y Gregorio Barsut debía darse cuenta de la repulsión que Erdosain experimentaba hacia él, porque más de una vez le dijo:
 
--Parece que mi conversación te desagrada, ¿no? -lo cual no era óbice para que fuera a su casa con frecuencia fastidiosa.
+–Parece que mi conversación te desagrada, ¿no? –lo cual no era óbice para que fuera a su casa con frecuencia fastidiosa.
 
 Erdosain se apresuró a negarle, y trató aparentemente de interesarse en la cháchara del otro, que conversaba horas seguidas, sin ton ni son, espiando siempre el rincón sudeste del cuarto. ¿Qué es lo que se proponía con esa actitud? Erdosain a su vez se consolaba de tales momentos desagradables pensando que el otro vivía acosado por la envidia y ciertos sufrimientos atroces que no tenían motivo de ser.
 
-Una noche dijo Gregorio, en presencia de la esposa de Erdosain, que raramente
+Una noche dijo Gregorio, en presencia de la esposa de Erdosain, que raramente asistía a esas conversaciones, pues se quedaba en otro cuarto cerrando la puerta para no escuchar las voces:
 
-asistía a esas conversaciones, pues se quedaba en otro cuarto cerrando la puerta para no escuchar las voces:
-
--¡Qué notable sería que me volviera loco y los matara a ustedes a tiros, suicidándome luego!
+–¡Qué notable sería que me volviera loco y los matara a ustedes a tiros, suicidándome luego!
 
 Sus ojos oblicuos estaban fijos en el rincón sudeste del cuarto, y sonreía mostrando los dientes puntiagudos, como si las palabras que antes había dicho no pasaran de una broma. Pero Elsa, mirándolo muy seria, le dijo:
 
--Que sea la última vez que hables de esta manera en mi casa. Si no, no volvés a pisar aquí.
+–Que sea la última vez que hables de esta manera en mi casa. Si no, no volvés a pisar aquí.
 
 Gregorio trató de disculparse. Pero ella salió y en toda la noche no volvió a dejarse ver.
 
@@ -335,7 +333,7 @@ Era un duelo invisible, odioso, sin un fin inmediato, tan irritante que Erdosain
 
 Muchas veces el otro llegaba, y antes de sentarse comenzaba a hablar.
 
--¿Sabes?... he tenido un sueño raro anoche.
+–¿Sabés?... he tenido un sueño raro anoche.
 
 Y clavados los ojos en el rincón sudeste del cuarto, sin sonreír, con una expresión casi dolorosa en el semblante sucio, con barba de tres días, Barsut monologaba lentamente, contaba sus terrores de hombre de veintisiete años, la preocupación que le había dejado en el entendimiento el guiño de un pez tuerto, y relacionando el pez tuerto con la mirada fisgona de una anciana alcahueta que quería que se casara con su hija que se dedicaba al espiritismo, derivaba la conversación hacia cada absurdo que de pronto, Erdosain, olvidándose de su rencor, se preguntaba si el otro no estaría loco. Elsa, indiferente a todo, cosía en la habitación medianera, mientras un profundo malestar inmovilizaba a Erdosain.
 
@@ -343,13 +341,11 @@ Percibía éste una vibración de impaciencia, entrechocando sus dedos por los n
 
 Apoyando un codo en la mesa y corrigiendo la rodillera de su pantalón, Barsut se quejaba a veces de que nadie le quería, mirando largamente a Erdosain al decir esto. Otras veces se burlaba de sus presentimientos y de un fantasma que decía ver en un rincón del excusado de la pensión donde vivía, fantasma que era una mujer gigantesca con una escoba entre las manos y los brazos delgados y la mirada arpía. En algunas oportunidades admitía que si no estaba enfermo terminaría por estarlo. Erdosain, fingiéndose cuidadoso de su salud, le preguntaba por los síntomas, aconsejándole reposo y cama, y como insistiera sobre esto. Barsut, malévolamente, le replicó una vez:
 
--¿Te molesta tanto mi presencia?
+–¿Te molesta tanto mi presencia?
 
-Otras veces Barsut llegaba siniestramente alegre, con una jovialidad de ebrio tacitur­no que le ha pegado fuego a un depósito de petróleo, y espatarrándose en el comedor,
+Otras veces Barsut llegaba siniestramente alegre, con una jovialidad de ebrio tacitur­no que le ha pegado fuego a un depósito de petróleo, y espatarrándose en el comedor, palmeteándolo a Erdosain en la espalda, con insistencia molesta, le preguntaba:
 
-palmeteándolo a Erdosain en la espalda, con insistencia molesta, le preguntaba:
-
--¿Cómo te va? ¿Qué tal? ¿Cómo te va?
+–¿Cómo te va? ¿Qué tal? ¿Cómo te va?
 
 A Barsut le centelleaban los ojos, y Erdosain permanecía allí triste, encogido, pre­guntándose qué era lo que lo apocaba en presencia de ese hombre, que siempre permanecía sentado en la orilla de la silla y espiando obstinadamente el rincón del comedor.
 
@@ -359,25 +355,25 @@ Había entre ellos una situación indefinida, oscura. Una de esas situaciones qu
 
 Erdosain odiaba a Barsut, pero con un rencor gris, tramposo, compuesto de malos ensueños y peores posibilidades. Y lo que hacía más intenso este odio era la falta de motivos.
 
-A veces dábase a trenzar las imágenes de alguna venganza atroz, y con el ceño fruncido compaginaba desastres. Pero al otro día, al llamar Barsut a la puerta de calle. Erdosain se estremecía como una adúltera a la llegada de su esposo, y hasta una vez llegó a encoleri­zarse con Elsa, porque demoró en abrirle la puerta a Barsut, agregando a modo de comentario destinado a ocultar su cobardía ante ella:
+A veces dábase a trenzar las imágenes de alguna venganza atroz, y con el ceño fruncido compaginaba desastres. Pero al otro día, al llamar Barsut a la puerta de calle, Erdosain se estremecía como una adúltera a la llegada de su esposo, y hasta una vez llegó a encoleri­zarse con Elsa, porque demoró en abrirle la puerta a Barsut, agregando a modo de comentario destinado a ocultar su cobardía ante ella:
 
--Va a creer que no queremos recibirlo. Para eso es mejor decirle que no venga más.
+–Va a creer que no queremos recibirlo. Para eso es mejor decirle que no venga más.
 
-Faltaba el motivo concreto, y ese rencor subterráneo su extendía en él como un cán­cer. Erdosain encontraba en cada gesto de Barsut razones para encorajinarse y desearle muer­tes atroces. Y Barsut, como si presintiera los sentimientos del otro, parecía ejecutar ex profe­so las groserías más repugnantes. Así, Erdosain no olvidó jamás este hecho:
+Faltaba el motivo concreto, y ese rencor subterráneo se extendía en él como un cán­cer. Erdosain encontraba en cada gesto de Barsut razones para encorajinarse y desearle muer­tes atroces. Y Barsut, como si presintiera los sentimientos del otro, parecía ejecutar ex profe­so las groserías más repugnantes. Así, Erdosain no olvidó jamás este hecho:
 
 Fue un anochecer en que habían ido a tomar un vermouth. Acompañando la bebida, el mozo trajo un platito de papas en ensalada, con mostaza. Barsut clavó con tal avidez el escarbadiente en un trozo de papa que volcó la ensalada sobre el mármol ennegrecido por el roce de las manos y la ceniza de los cigarrillos. Erdosain lo observó, irritado. Entonces, Barsut, burlándose, recogió pedazo por pedazo y al llegar al último restregó con éste la mostaza derramada en el mármol, llevándoselo después a la boca con una sonrisa irónica.
 
--Podrías lamer el mármol -observó Erdosain asqueado.
+–Podrías lamer el mármol –observó Erdosain asqueado.
 
 Barsut le dirigió una mirada extraña, casi provocativa. Luego inclinó la cabeza y su lengua enjugó el mármol.
 
--¿Estás contento?
+–¿Estás contento?
 
 Erdosain palideció.
 
--¿ Te has vuelto loco?
+–¿ Te has vuelto loco?
 
--¿Qué? ¿Te vas a hacer mala sangre?
+–¿Qué? ¿Te vas a hacer mala sangre?
 
 Y de pronto Barsut, riéndose, amable, disuelta esa especie de frenesí que lo había enfoscado toda la tarde, se levantó diciendo futilezas.
 
@@ -389,7 +385,7 @@ Y es que Remo provocaba sus confidencias, y las provocaba con una transitoria pe
 
 De pronto Erdosain levantó la cabeza. El negro de cuello palomita había terminado de empulgarse y ahora los tres «macrós» se repartían fajos de dinero bajo la ávida mirada de los choferes que, desde la otra mesa, soslayaban con el vértice del ojo. El negro parecía que, bajo la influencia del dinero, iba a estornudar, tan lamentablemente miraba a los rufianes.
 
-Erdosain se puso de pie y pagó. Luego salió diciéndose: -Si Gregorio me falla le pediré al Astrólogo.
+Erdosain se puso de pie y pagó. Luego salió diciéndose: –Si Gregorio me falla le pediré al Astrólogo.
 
 
 
@@ -409,15 +405,13 @@ Miraba largamente los pasamanos que en los balcones negros fulguraban redondeces
 
 Sin embargo, él debía seiscientos pesos con siete centavos. Y la voz del farmacéuti­co repetía ahora en sus orejas:
 
--Tenes razón... el mundo está lleno de turros... de infelices... pero cómo remediar esto?... ¿De qué forma presentarle las verdades sagradas a esa gente que no tiene fe?...
+–Tenés razón... el mundo está lleno de turros... de infelices... pero cómo remediar esto?... ¿De qué forma presentarle las verdades sagradas a esa gente que no tiene fe?...
 
 La pena, como uno de esos arbustos cuyo desarrollo se acelera con la electricidad, crecía en las honduras de su pecho retrepándole hasta la garganta.
 
-Detenido pensaba que cada pesar era un búho que saltaba de una rama a otra de su desdicha. El debía seiscientos pesos con siete centavos y aunque quería olvidarse de ello poniendo sus esperanzas en Barsut o en el Astrólogo, su pensamiento se bifurcaba hacia una calle oscura. Hileras de luces parecían apoyarse en las cornisas. Abajo llenaba el cajón de la calle una neblina de polvo. Pero él caminaba hacia el país de la alegría, olvidado de la Limited Azucarer Company.
+Detenido pensaba que cada pesar era un búho que saltaba de una rama a otra de su desdicha. Él debía seiscientos pesos con siete centavos y aunque quería olvidarse de ello poniendo sus esperanzas en Barsut o en el Astrólogo, su pensamiento se bifurcaba hacia una calle oscura. Hileras de luces parecían apoyarse en las cornisas. Abajo llenaba el cajón de la calle una neblina de polvo. Pero él caminaba hacia el país de la alegría, olvidado de la Limited Azucarer Company.
 
-¿Qué había hecho de su vida? ¿Era ésa o no hora de preguntárselo? ¿Y cómo podía
-
-caminar si su cuerpo pesaba setenta kilos? ¿O era un fantasma, un fantasma que recordaba sucesos de la tierra?
+¿Qué había hecho de su vida? ¿Era ésa o no hora de preguntárselo? ¿Y cómo podía caminar si su cuerpo pesaba setenta kilos? ¿O era un fantasma, un fantasma que recordaba sucesos de la tierra?
 
 ¡Cuántas cosas se movían en su corazón! ¿Y el otro que se había casado con una prostituta? ¿Y Barsut con su preocupación del pez tuerto y la primogénita de la espiritista? ¿Y Elsa que no entregándosele lo arrojaba a la calle? ¿Estaba loco o no?
 
@@ -429,13 +423,13 @@ Y lo curioso es que cuando él pensaba que el «millonario melancólico y tacitu
 
 Tan es así, que Erdosain esperaba que el «millonario melancólico y taciturno» lo mandara llamar de un momento a otro al observar su semblante de músculos endurecidos por el sufrimiento de tantos años.
 
-Tanto creció esta obsesión aquella tarde, que de pronto creyó que un granuja de chaleco y rayas rojas y amarillas que estaba en la puerta del hotel examinándole descarada­mente, era el espía del «millonario melancólico y taciturno».
+Tanto creció esta obsesión aquella tarde, que de pronto creyó que un granuja de chaleco y rayas rojas y amarillas que estaba en la puerta del hotel examinándole descarada­mente era el espía del «millonario melancólico y taciturno».
 
-Y el criado lo llamaba. El lo seguía. Cruzaban un jardín erizado de cactus, entraban a un salón y permanecía solo durante unos minutos. Todo el edificio estaba a oscuras. Una lámpara brillaba en un rincón del salón. Sobre la ménsula del piano, piezas de música espar­cían la fragancia de los papeles tocados siempre por manos femeninas. En el alféizar de una ventana cubierta de linones violetas estaba abandonada la cabeza de mármol de una mujer. Veíanse forrados los almohadones de las fraileras de géneros que parecían pinturas cubistas, y sobre el escritorio había ceniceros de bronce negro y polichinelas de mil colores.
+Y el criado lo llamaba. Él lo seguía. Cruzaban un jardín erizado de cactus, entraban a un salón y permanecía solo durante unos minutos. Todo el edificio estaba a oscuras. Una lámpara brillaba en un rincón del salón. Sobre la ménsula del piano, piezas de música espar­cían la fragancia de los papeles tocados siempre por manos femeninas. En el alféizar de una ventana cubierta de linones violetas estaba abandonada la cabeza de mármol de una mujer. Veíanse forrados los almohadones de las fraileras de géneros que parecían pinturas cubistas, y sobre el escritorio había ceniceros de bronce negro y polichinelas de mil colores.
 
 ¿En qué circunstancia de su vida había estado en el interior de esa sala que ahora se presentaba a su imaginación? No podía recordarlo. Pero veía un gran marco de ébano cuyos biseles paralelos retrepaban hacia un cielo raso blanquísimo, que volcaba su luz de yeso sobre una marina: cierto siniestro puente de madera, bajo cuyos contrafuertes ciclópeos her­vía una multitud de hombres borrosos, manchados por sombras rojizas, y que acarreaban grandes bultos frente a un proceloso mar de hierro colado, sanguinolento, del que se levanta­ba en ángulo recto un muelle de piedra obstaculizado de fraguas, rieles y guinches.
 
-En aquella sala se movía Elsa cuando aun era su novia. Sí quizás, pero, ¿para qué recordarlo? El era el fraudulento, el hombre de los botines rotos, de la corbata deshilachada, del traje lleno de manchas, que se gana la vida en la calle mientras la mujer enferma lava ropas en la casa. El era todo eso y nada más. Por eso lo había mandado llamar el «millonario melancólico y taciturno».
+En aquella sala se movía Elsa cuando aun era su novia. Sí, quizás, pero ¿para qué recordarlo? Él era el fraudulento, el hombre de los botines rotos, de la corbata deshilachada, del traje lleno de manchas, que se gana la vida en la calle mientras la mujer enferma lava ropas en la casa. Él era todo eso y nada más. Por eso lo había mandado llamar el «millonario melancólico y taciturno».
 
 Erdosain, gozoso en el ensueño, en parte hecho plástico, por los espacios de tiempo e imágenes reconstruidas a expensas del gran señor invisible, no quería detenerse ya en su entrevista con el «millonario melancólico y taciturno» que le ofrecía dinero para hacer prác­ticos sus inventos, sino que semejante a esos lectores de folletines policiales que apresurados para llegar al desenlace de la intriga saltean los «puntos muertos» de la novela, Erdosain soslayaba determinadas construcciones interesantes de su imaginación, y se restituía a la calle, aunque en la calle se encontraba.
 
@@ -459,7 +453,7 @@ Los rojizos tejados caían oblicuamente, protegiendo con el alero los tragaluces
 
 Erdosain pensó:
 
--Aunque tuviera una barca de plata con velas de oro y remos de marfil, y el océano se volviera de siete colores lisos, y desde la luna una millonaria con las manos me tirara besos, mi tristeza sería la misma... Mas esto no hay que decirlo. Sin embargo, mejor viviría aquí que allí. Aquí podría tener un laboratorio.
+–Aunque tuviera una barca de plata con velas de oro y remos de marfil, y el océano se volviera de siete colores lisos, y desde la luna una millonaria con las manos me tirara besos, mi tristeza sería la misma... Mas esto no hay que decirlo. Sin embargo, mejor viviría aquí que allí. Aquí podría tener un laboratorio.
 
 Una camilla mal cerrada goteaba en un tonel. Al pie del poste de una glorieta dormitaba un perro, y cuando se detuvo para llamar frente a la escalinata apareció por la puerta la gigantesca figura del Astrólogo, cubierto con un guardapolvo amarillo y la galera echada sobre la frente, sombreándole el anchuroso rostro romboidal. Algunos mechones de cabello rizado se escapaban sobre sus sienes, y su nariz, con el tabique fracturado en la parte media, estaba extraordinariamente desviada hacia la izquierda. Bajo sus cejas abultadas se movían vivamente unos redondos ojos negros, y esa cara de mejillas duras, surcadas de estrías rugo­sas, daba la impresión de estar esculpida en plomo. ¡Tanto debía de pesar esa cabeza!
 
@@ -469,81 +463,81 @@ Atravesando el vestíbulo oscuro y hediondo a humedad, entraron a un escritorio 
 
 La habitación era francamente siniestra, con su altísimo cielorraso surcado de telara­ñas y la estrecha ventana protegida por el nudoso enrejado. En el enchapado de un armario antiguo, arrinconado, la claridad azulada se rompía en lívidas penumbras. Sentado en un sillón forrado de raído terciopelo verde estaba un hombre vestido de gris, renegrida onda de cabellos le soslayaba la frente, y calzaba botines de cana clara. Onduló el amarillo guarda­polvo del Astrólogo al acercarse al desconocido.
 
--Erdosain, le voy a presentar a Arturo Haffner.
+–Erdosain, le voy a presentar a Arturo Haffner.
 
 En otra oportunidad, el fraudulento hubiérale dicho algo al hombre que el Astrólogo llamaba en su intimidad el Rufián Melancólico, quien, después de estrechar la mano de Erdosain, se cruzó de piernas en el sillón, apoyando la azulada mejilla en tres dedos de uñas centellantes. Y Erdosain remiró aquel rostro casi redondo, con laxitud de paz, y en la que sólo denunciaba al hombre de acción de chispa burlona, movediza, en el fondo de los ojos, y ese movimiento de levantar una ceja más que otra al escuchar al que hablaba. Erdosain distinguió a un costado, entre el saco y la camisa de seda que usaba el Rufián, el cabo negro de un revólver. Indudablemente, en la vida, los rostros significan poca cosa.
 
 Luego el Rufián volvió nuevamente la cabeza hacia un mapa de los Estados Unidos de la América del Norte, al cual se dirigió al Astrólogo recogiendo un puntero. Y ya deteni­do, con el brazo amarillo cortando el azul mar del Caribe, exclamó:
 
--El Ku-Klux-Klan tenía sólo en Chicago 150 mil adherentes... En Missouri, 100.000 adherentes. Se dice que en Arkansas hay más de 200 «cavernas». En Little Rock, el Imperio Invisible afirma que todos los pastores protestantes están adheridos a la hermandad. En Texas domina absolutamente en las ciudades de Dallas, Fort, Houston, Beaumont. En Binghamtom, residencia de Smith, que era Gran Dragón de la Orden, se contaban 75.000 adeptos, y en Oklahoma éstos hicieron decretar por las Cámaras un «bill» suspendiéndolo a Walton, el gobernador, por perseguirlos, de tal modo que prácticamente el estado se encontraba hasta hace poco tiempo bajo el control del Klan.
+–El Ku-Klux-Klan tenía sólo en Chicago 150 mil adherentes... En Missouri, 100.000 adherentes. Se dice que en Arkansas hay más de 200 «cavernas». En Little Rock, el Imperio Invisible afirma que todos los pastores protestantes están adheridos a la hermandad. En Texas domina absolutamente en las ciudades de Dallas, Fort, Houston, Beaumont. En Binghamtom, residencia de Smith, que era Gran Dragón de la Orden, se contaban 75.000 adeptos, y en Oklahoma éstos hicieron decretar por las Cámaras un «bill» suspendiéndolo a Walton, el gobernador, por perseguirlos, de tal modo que prácticamente el estado se encontraba hasta hace poco tiempo bajo el control del Klan.
 
 El guardapolvo amarillo del Astrólogo parecía la vestimenta de un sacerdote de Buda.
 
 Continuó el Astrólogo:
 
--¿Sabe usted que quemaron vivos a muchos hombres?...
+–¿Sabe usted que quemaron vivos a muchos hombres?...
 
--Sí -asintió el Rufián-; leí los telegramas.
+–Sí –asintió el Rufián–; leí los telegramas.
 
-Erdosain examinaba ahora al Rufián Melancólico. Así lo llamaba el Astrólogo, por­que el macró hacía muchos años había querido suicidarse. Fue aquél un asunto oscuro. Del día a la noche, Haffner, que hacía tiempo explotaba a prostitutas, se descerrajó un tiro en el pecho, junto al corazón. La contracción del órgano en el preciso instante de pasar el proyectil lo salvó de la muerte. Luego, como es natural, continuó haciendo su vida, quizá con un poco de más prestigio por ese gesto que ninguno de sus camaradas de rapiña se explicaba. Conti­nuó el Astrólogo:
+Erdosain examinaba ahora al Rufián Melancólico. Así lo llamaba el Astrólogo, por­que el macró hacía muchos años había querido suicidarse. Fue aquél un asunto oscuro. Del día a la noche, Haffner, que hacía tiempo explotaba a prostitutas, se descerrajó un tiro en el pecho, junto al corazón. La contracción del órgano en el preciso instante de pasar el proyectil lo salvó de la muerte. Luego, como es natural, continuó haciendo su vida, quizá con un poco más de prestigio por ese gesto que ninguno de sus camaradas de rapiña se explicaba. Conti­nuó el Astrólogo:
 
--El Ku-Klux-Klan reunió millones...
+–El Ku-Klux-Klan reunió millones...
 
 Se desperezó el Rufián y contestó:
 
--Sí, y al Dragón... ¡ese sí que es un Dragón!, se le procesa por estafador...
+–Sí, y al Dragón... ¡ese sí que es un Dragón!, se le procesa por estafador...
 
 El Astrólogo se desentendió de la réplica:
 
--¿Qué es lo que se opone aquí en la Argentina para que exista también una sociedad secreta que alcance tanto poderío como aquélla allá? Y le hablo a usted con franqueza. No sé si nuestra sociedad será bolchevique o fascista. A veces me inclino a creer que lo mejor que se puede hacer es preparar una ensalada rusa que ni Dios la entienda. Creo que no se me puede pedir más sinceridad en este momento. Vea que por ahora lo que yo pretendo hacer es un bloque donde se consoliden todas las posibles esperanzas humanas. Mi plan es dirigirnos con preferencia a los jóvenes bolcheviques, estudiantes y proletarios inteligentes. Además, acogeremos a los que tienen un plan para reformar el universo, a los empleados que aspiran a ser millonarios, a los inventores fallados -no se dé por aludido, Erdosain-, a los cesantes de cualquier cosa, a los que acaban de sufrir un proceso y quedan en la calle sin saber para qué lado mirar...
+–¿Qué es lo que se opone aquí en la Argentina para que exista también una sociedad secreta que alcance tanto poderío como aquélla allá? Y le hablo a usted con franqueza. No sé si nuestra sociedad será bolchevique o fascista. A veces me inclino a creer que lo mejor que se puede hacer es preparar una ensalada rusa que ni Dios la entienda. Creo que no se me puede pedir más sinceridad en este momento. Vea que por ahora lo que yo pretendo hacer es un bloque donde se consoliden todas las posibles esperanzas humanas. Mi plan es dirigirnos con preferencia a los jóvenes bolcheviques, estudiantes y proletarios inteligentes. Además, acogeremos a los que tienen un plan para reformar el universo, a los empleados que aspiran a ser millonarios, a los inventores fallados –no se dé por aludido, Erdosain–, a los cesantes de cualquier cosa, a los que acaban de sufrir un proceso y quedan en la calle sin saber para qué lado mirar...
 
 Erdosain recordó la misión que lo llevó a la casa del Astrólogo, y dijo:
 
--Tendría que hablar con usted...
+–Tendría que hablar con usted...
 
--Un momentito... estoy en seguida con usted -y siguió-: El poder de esta sociedad no derivará de lo que los socios quieran dar, sino de lo que producirán los prostíbulos anexos a cada célula. Cuando yo hablo de una sociedad secreta, no me refiero al tipo clásico de socie­dad, sino a una supermoderna, donde cada miembro y adepto tenga intereses, y recoja ganan­cias, porque sólo así es posible vincularlos más y más a los fines que sólo conocerán unos pocos. Este es el aspecto comercial. Los prostíbulos producirán ingresos como para mantener las crecientes ramificaciones de la sociedad. En la cordillera estableceremos una colonia revolucionaria. Allí, los novicios seguirán cursos de táctica ácrata, propaganda revoluciona­ria, ingeniería militar, instalaciones industriales, de manera que estos asociados el día que salgan de la colonia puedan establecer en cualquier parte una rama de la sociedad... ¿Me entiende? La sociedad secreta tendrá su academia, la Academia para Revolucionarios.
+–Un momentito... estoy en seguida con usted –y siguió–: El poder de esta sociedad no derivará de lo que los socios quieran dar, sino de lo que producirán los prostíbulos anexos a cada célula. Cuando yo hablo de una sociedad secreta, no me refiero al tipo clásico de socie­dad, sino a una supermoderna, donde cada miembro y adepto tenga intereses, y recoja ganan­cias, porque sólo así es posible vincularlos más y más a los fines que sólo conocerán unos pocos. Este es el aspecto comercial. Los prostíbulos producirán ingresos como para mantener las crecientes ramificaciones de la sociedad. En la cordillera estableceremos una colonia revolucionaria. Allí, los novicios seguirán cursos de táctica ácrata, propaganda revoluciona­ria, ingeniería militar, instalaciones industriales, de manera que estos asociados el día que salgan de la colonia puedan establecer en cualquier parte una rama de la sociedad... ¿Me entiende? La sociedad secreta tendrá su academia, la Academia para Revolucionarios.
 
 El reloj suspendido del muro dio cinco campanadas. Erdosain comprendió que no podía perder más tiempo, y exclamó:
 
--Perdone que lo interrumpa. He venido para un asunto grave. ¿Tiene usted seiscien­tos pesos?
+–Perdone que lo interrumpa. He venido para un asunto grave. ¿Tiene usted seiscien­tos pesos?
 
--El Astrólogo dejó su puntero y se cruzó de brazos:
+–El Astrólogo dejó su puntero y se cruzó de brazos:
 
--¿Qué es lo que le pasa a usted?
+–¿Qué es lo que le pasa a usted?
 
--Si mañana no repongo seiscientos pesos en la Azucarera, me pondrán preso.
+–Si mañana no repongo seiscientos pesos en la Azucarera, me pondrán preso.
 
-Los dos hombres miraron curiosamente a Erdosain. Debía sufrir mucho para haber lanzado así sus pedido. Erdosain continuó:
+Los dos hombres miraron curiosamente a Erdosain. Debía sufrir mucho para haber lanzado así su pedido. Erdosain continuó:
 
--Es preciso que usted me ayude. He defraudado en unos cuantos meses seiscientos pesos. Me denunciaron en un anónimo. Si no repongo el dinero mañana, me pondrán preso.
+–Es preciso que usted me ayude. He defraudado en unos cuantos meses seiscientos pesos. Me denunciaron en un anónimo. Si no repongo el dinero mañana, me pondrán preso.
 
--¿Y cómo es que usted robo ese dinero?...
+–¿Y cómo es que usted robo ese dinero?...
 
--Así, despacio...
+–Así, despacio...
 
 El Astrólogo se acariciaba la barba preocupado.
 
--¿Cómo ha ocurrido eso?
+–¿Cómo ha ocurrido eso?
 
 Erdosain tuvo que explicarse nuevamente. Los comerciantes, al recibir la mercade­ría, firmaban un vale en el que reconocían deber el importe de lo adquirido. Erdosain, en compañía de otros dos cobradores, recibía cada fin de mes los vales que tenía que hacer efectivos durante los treinta días restantes.
 
 Los recibos que éstos decían no haber cobrado quedaban en su poder hasta que los comerciantes se resolvían a cancelar la deuda. Y Erdosain continuó:
 
--Fíjense que la negligencia del cajero era tal, que nunca controló los vales que noso­tros decíamos no haber cobrado, de manera que a una cuenta hecha efectiva y malversada le dábamos entrada en la plantilla de cobranza con el dinero que provenía de una cuenta que cobrábamos después. ¿Se dan cuenta?
+–Fijense que la negligencia del cajero era tal que nunca controló los vales que noso­tros decíamos no haber cobrado, de manera que a una cuenta hecha efectiva y malversada le dábamos entrada en la plantilla de cobranza con el dinero que provenía de una cuenta que cobrábamos después. ¿Se dan cuenta?
 
 Erdosain era el vértice de aquel triángulo que formaban los tres hombres sentados. El Rufián Melancólico y el Astrólogo se miraban de vez en cuando. Haffner sacudía la ceniza de su cigarrillo, y luego, con una ceja más levantada que la otra, continuaba exami­nando de pies a cabeza a Erdosain. Al fin terminó por hacerle esta extraña pregunta:
 
--¿Y encontraba alguna satisfacción en robar?...
+–¿Y encontraba alguna satisfacción en robar?...
 
--No, ninguna...
+–No, ninguna...
 
--Y entonces, ¿cómo anda con los botines rotos?...
+–Y entonces, ¿cómo anda con los botines rotos?...
 
--Es que ganaba muy poco.
+–Es que ganaba muy poco.
 
--Pero ¿y lo que robaba?
+–Pero ¿y lo que robaba?
 
--Nunca se me ocurrió comprarme botines con esa plata.
+–Nunca se me ocurrió comprarme botines con esa plata.
 
 Y era cierto. El placer que experimentó en un principio de disponer impunemente de lo que no le pertenecía se evaporó pronto. Erdosain descubrió un día en él la inquietud que hace ver los cielos soleados como ennegrecidos de un hollín que sólo es visible para el alma que está triste.
 
@@ -551,103 +545,99 @@ Cuando comprobó que debía cuatrocientos pesos, el sobresalto lo volcó hacia l
 
 Daba abundantes limosnas y solía dejar a los mozos que le servían cuantiosas propi­nas, todo ello para acabar con los rastros de ese dinero robado que llevaba en su bolsillo y que al otro día podía sustraer impunemente.
 
--¿De modo que no se le ocurrió comprar botines? -insistió Haffner.
+–¿De modo que no se le ocurrió comprar botines? –insistió Haffner.
 
--Realmente, ahora que usted me lo hace observar, me parece curioso a mí también, pero la verdad es que nunca pensé que con plata robada se pudieran comprar esas cosas.
+–Realmente, ahora que usted me lo hace observar, me parece curioso a mí también, pero la verdad es que nunca pensé que con plata robada se pudieran comprar esas cosas.
 
--Y entonces, ¿en qué gastaba el dinero?
+–Y entonces, ¿en qué gastaba el dinero?
 
--Doscientos pesos le di a una familia amiga, los Espila, para comprar un acumulador e instalar un pequeño laboratorio de galvanoplastia, para fabricar la rosa de cobre, que es...
+–Doscientos pesos le di a una familia amiga, los Espila, para comprar un acumulador e instalar un pequeño laboratorio de galvanoplastia, para fabricar la rosa de cobre, que es...
 
--La conozco ya...
+–La conozco ya...
 
--Sí, ya le hablé de eso -repuso el Astrólogo.
+–Sí, ya le hablé de eso –repuso el Astrólogo.
 
--¿Y los otros cuatrocientos?
+–¿Y los otros cuatrocientos?
 
--No sé... Los he gastado de una manera absurda...
+–No sé... Los he gastado de una manera absurda...
 
--Y ahora, ¿qué piensa hacer?...
+–Y ahora, ¿qué piensa hacer?...
 
--No sé.
+–No sé.
 
--¿No conoce a nadie que le pueda facilitar?...
+–¿No conoce a nadie que le pueda facilitar?...
 
--No, nadie. Le pedí a un pariente de mi mujer, Barsut, hace diez días. Me dijo que no podía...
+–No, nadie. Le pedí a un pariente de mi mujer, Barsut, hace diez días. Me dijo que no podía...
 
--¿Lo meterán preso, entonces?
+–¿Lo meterán preso, entonces?
 
--Es claro...
+–Es claro...
 
 El Astrólogo se volvió al macró y dijo:
 
--Usted ya sabe que cuento con mil pesos. Esa es la base de todos mis proyectos. Yo a usted, Erdosain, lo único que puedo darle son trescientos pesos. También, mi amigo, ¡qué cosas hace!...
+–Usted ya sabe que cuento con mil pesos. Esa es la base de todos mis proyectos. Yo a usted, Erdosain, lo único que puedo darle son trescientos pesos. También, mi amigo, ¡qué cosas hace!...
 
 De pronto Erdosain se olvidó de Haffner y exclamó:
 
--Es que es la angustia, ¿sabe?... Esa «jodida» angustia la que lo arrastra...
+–Es que es la angustia, ¿sabe?... Esa «jodida» angustia la que lo arrastra...
 
--¿Cómo es eso? -interrumpió el Rufián.
+–¿Cómo es eso? –interrumpió el Rufián.
 
--Dije que es la angustia. Uno roba, hace macanas porque está angustiado. Usted camina por las calles con el sol amarillo, que parece un sol de peste... Claro. Usted tiene que haber pasado por esas situaciones. Llevar cinco mil pesos en la cartera y estar triste. Y de pronto una idea chiquita le sugiere el robo. Esa noche no puede dormir de alegría. Al otro día hace temblando la prueba y sale tan bien que no queda otro remedio que seguir... lo mismo que cuando usted se intentó matar.
+–Dije que es la angustia. Uno roba, hace macanas porque está angustiado. Usted camina por las calles con el sol amarillo, que parece un sol de peste... Claro. Usted tiene que haber pasado por esas situaciones. Llevar cinco mil pesos en la cartera y estar triste. Y de pronto una idea chiquita le sugiere el robo. Esa noche no puede dormir de alegría. Al otro día hace temblando la prueba y sale tan bien que no queda otro remedio que seguir... lo mismo que cuando usted se intentó matar.
 
 Al pronunciar estas palabras, Haffner se incorporó sobre el sillón y se tomó con las manos las rodillas. El Astrólogo hubiera querido imponer silencio a Erdosain. Era imposible, y éste continuó:
 
--Sí, como cuando usted se intentó matar. Yo me lo he imaginado muchas veces. Se había aburrido de ser cafishio. ¡ Ah, si supiera el interés que tenía en conocerlo! Me decía: Este debe ser un macró extraño. Claro está que de cien mil individuos que como usted viven de las mujeres se encuentra uno de su forma de ser. Usted me preguntó si yo sentía placer en robar. Y usted, ¿siente placer en ser cafishio? Dígame: ¿siente placer?... Pero, ¡qué diablo!, yo no he venido aquí para dar explicaciones, ¿saben? Lo que necesito es plata, no palabras.
+–Sí, como cuando usted se intentó matar. Yo me lo he imaginado muchas veces. Se había aburrido de ser cafishio. ¡Ah, si supiera el interés que tenía en conocerlo! Me decía: Este debe ser un macró extraño. Claro está que de cien mil individuos que como usted viven de las mujeres se encuentra uno de su forma de ser. Usted me preguntó si yo sentía placer en robar. Y usted, ¿siente placer en ser cafishio? Dígame: ¿siente placer?... Pero, ¡qué diablo!, yo no he venido aquí para dar explicaciones, ¿saben? Lo que necesito es plata, no palabras.
 
 Erdosain se había levantado, y ahora apretaba, temblando, entre sus dedos, el ala del sombrero. Miraba indignado al Astrólogo, cuya galera cubría el estado de Kansas en el mapa, y al Rufián, que se introdujo las manos entre el cinto y el pantalón. Este volvió a acomodarse en su sillón forrado de terciopelo verde, apoyó la mejilla en su mano regordeta, y sonriendo burlón, dijo calmosamente:
 
--Siéntese, amigo, yo le voy a dar los seiscientos pesos. Los brazos de Erdosain se encogieron. Luego, sin moverse, lo miró largamente al Rufián. Este, insistió, recalcando las palabras.
+–Siéntese, amigo, yo le voy a dar los seiscientos pesos. Los brazos de Erdosain se encogieron. Luego, sin moverse, lo miró largamente al Rufián. Este, insistió, recalcando las palabras.
 
--Siéntese con confianza, amigo. Yo le voy a dar los seiscientos pesos. Para eso esta­mos los hombres.
+–Siéntese con confianza, amigo. Yo le voy a dar los seiscientos pesos. Para eso esta­mos los hombres.
 
 Erdosain no supo qué decir. La misma tristeza que estalló en él cuando el hombre de la cabeza de jabalí le dijo en el escritorio que podía irse, la misma tristeza le enervaba ahora. ¡Entonces, la vida no era tan mala!
 
--Hagamos esto -dijo el Astrólogo-. Yo le doy los trescientos pesos y usted otros trescientos.
+–Hagamos esto –dijo el Astrólogo–. Yo le doy los trescientos pesos y usted otros trescientos.
 
--No -dijo Haffner-. Usted necesita esa plata. Yo, no. Para eso tengo tres mujeres.- Y dirigiéndose a Erdosain, continuó-: ¿Ha visto, amigo, cómo se arreglan las cosas? ¿Está satisfecho?
+–No –dijo Haffner–. Usted necesita esa plata. Yo, no. Para eso tengo tres mujeres. –Y dirigiéndose a Erdosain, continuó– ¿Ha visto, amigo, cómo se arreglan las cosas? ¿Está satisfecho?
 
 Hablaba con socarrona calmosidad, con cierta cachaza de hombre de campo que siempre sabe que la experiencia que tiene de la naturaleza le permitirá encontrar una salida en la situación más complicada. Y Erdosain recién ahora percibió el candente perfume de las rosas y el gotear de la canilla en el barril que por la ventana entreabierta se escuchaba. Afuera ondulaban los caminos, iluminados por el sol, y el peso de los pájaros doblaban las ramas de los granados, consteladas de asteriscos escarlatas.
 
 Nuevamente en los ojos del Rufián brilló la chispa de luz maliciosa. Con una jeta más levantada que la otra aguardaba la explosión de júbilo de Erdosain, mas como ésta no llegó, dijo:
 
--¿Hace mucho que usted vive de esa manera?...
+–¿Hace mucho que usted vive de esa manera?...
 
--Sí, mucho.
+–Sí, mucho.
 
--¿Se acuerda usted que yo le dije una vez que de esa forma, aunque usted no me
+–¿Se acuerda usted que yo le dije una vez que de esa forma, aunque usted no me confiaba nada, no se puede vivir? –objetó el Astrólogo.
 
-confiaba nada, no se puede vivir? -objetó el Astrólogo.
+–Sí, pero no quería hablar del asunto. No sé... esas cosas que uno no puede explicarse por qué las calla a las personas con quienes más confianza tiene.
 
--Sí, pero no quería hablar del asunto. No sé... esas cosas que uno no puede explicarse por qué las calla a las personas con quienes más confianza tiene.
+–¿Cuándo va usted a reponer ese dinero?
 
--¿Cuándo va usted a reponer ese dinero?
+–Mañana.
 
--Mañana.
-
--Bueno, entonces le voy a hacer un cheque ahora. Lo tendrá que cobrar mañana.
+–Bueno, entonces le voy a hacer un cheque ahora. Lo tendrá que cobrar mañana.
 
 Haffner se dirigió al escritorio. Sacó del bolsillo la libreta de cheques y escribió firmemente la suma, firmando después.
 
 Erdosain pasó por ese viaje sin movimiento de un minuto con la inconsciencia del que se encuentra frente a la perspectiva de un sueño, y que luego más tarde se recuerda, para afirmar que en determinadas circunstancias la vida está empapada de un fatalismo inteligen­te.
 
--Sírvase, amigo.
+–Sírvase, amigo.
 
 Erdosain recogió el cheque, y sin leerlo lo dobló en cuatro pliegos, guardándolo en su bolsillo. Todo había ocurrido en un minuto. El suceso era más absurdo que una novela, a pesar de ser él un hombre de carne y hueso. Y no sabía qué decir. Ya no los debía, y el prodigio lo había obrado un solo gesto del Rufián. Este acontecimiento era un imposible de acuerdo con la lógica que rige los procedimientos corrientes, y sin embargo nada había ocu­rrido. Quería decir algo. Nuevamente examinó la catadura del hombre apoltronado en el sillón de terciopelo raído. Ahora el revólver estaba de relieve bajo la tela gris del saco, y Haffner, displicente, apoyaba la azulada mejilla en sus tres dedos de uñas centelleantes. Deseaba darle las gracias al Rufián, pero no sabía con qué palabras hacerlo. Este compren­dió, y, dirigiéndose al Astrólogo, que se había sentado en un taburete junto al escritorio, dijo:
 
--¿De manera que una de las bases de su sociedad será la obediencia?...
+–¿De manera que una de las bases de su sociedad será la obediencia?...
 
--Y el industrialismo. Hace falta oro para atrapar la conciencia de los hombres. Así como hubo el misticismo religioso y el caballeresco, hay que crear misticismo industrial. Hacerle ver a un hombre que es tan bello ser jefe de un alto horno como hermoso antes descubrir un continente. Mi político, mi alumno político en la sociedad será un hombre que pretenderá conquistar la felicidad mediante la industria. Este revolucionario sabrá hablar tan bien de un sistema de estampado de tejidos como de la desmagnetización de un acero. Por eso lo estimé a Erdosain en cuanto lo conocí. Tenía mi misma preocupación. Usted recuerda cuántas veces hablamos de la coincidencia de nuestras miras. Crear un hombre soberbio, hermoso, inexorable, que domina las multitudes y les muestra un porvenir basado en la cien­cia. ¿Cómo es posible de otro modo una revolución social? El jefe de hoy ha de ser un hombre que lo sepa todo. Nosotros crearemos ese príncipe de sapiencia. La sociedad se en­cargará de confeccionar su leyenda y extenderla. Un Ford o un Edison tienen mil probabili­dades más de provocar una revolución que un político. ¿Usted cree que las futuras dictaduras serán militares? No, señor. El militar no vale nada junto al industrial. Puede ser instrumento de él, nada más. Eso es todo. Los futuros dictadores serán reyes del petróleo, del acero, del trigo. Nosotros, con nuestra sociedad, prepararemos ese ambiente. Familiarizaremos a la gente con nuestras teorías. Por eso hace falta un estudio detenido de propaganda. Aprovechar los estudiantes y las estudiantas. Embellecer la ciencia, acercarla de tal modo a los hombres que de pronto...
+–Y el industrialismo. Hace falta oro para atrapar la conciencia de los hombres. Así como hubo el misticismo religioso y el caballeresco, hay que crear misticismo industrial. Hacerle ver a un hombre que es tan bello ser jefe de un alto horno como hermoso antes descubrir un continente. Mi político, mi alumno político en la sociedad será un hombre que pretenderá conquistar la felicidad mediante la industria. Este revolucionario sabrá hablar tan bien de un sistema de estampado de tejidos como de la desmagnetización de un acero. Por eso lo estimé a Erdosain en cuanto lo conocí. Tenía mi misma preocupación. Usted recuerda cuántas veces hablamos de la coincidencia de nuestras miras. Crear un hombre soberbio, hermoso, inexorable, que domina las multitudes y les muestra un porvenir basado en la cien­cia. ¿Cómo es posible de otro modo una revolución social? El jefe de hoy ha de ser un hombre que lo sepa todo. Nosotros crearemos ese príncipe de sapiencia. La sociedad se en­cargará de confeccionar su leyenda y extenderla. Un Ford o un Edison tienen mil probabilidades más de provocar una revolución que un político. ¿Usted cree que las futuras dictaduras serán militares? No, señor. El militar no vale nada junto al industrial. Puede ser instrumento de él, nada más. Eso es todo. Los futuros dictadores serán reyes del petróleo, del acero, del trigo. Nosotros, con nuestra sociedad, prepararemos ese ambiente. Familiarizaremos a la gente con nuestras teorías. Por eso hace falta un estudio detenido de propaganda. Aprovechar los estudiantes y las estudiantas. Embellecer la ciencia, acercarla de tal modo a los hombres que de pronto...
 
--Yo me voy dijo Erdosain.
+–Yo me voy dijo Erdosain.
 
 Se iba a despedir de Haffner, cuando éste dijo:
 
--Entonces, un momento, oiga.
+–Entonces, un momento, oiga.
 
-Salieron el Astrólogo y el macró un instante, luego regresaron, y al despedirse en la puerta de la quinta Erdosain volvió la cabeza para mirar al hombre gigantesco, que con el
-
-brazo encogido les hacía los gestos de un saludo.
+Salieron el Astrólogo y el macró un instante, luego regresaron, y al despedirse en la puerta de la quinta Erdosain volvió la cabeza para mirar al hombre gigantesco, que con el brazo encogido les hacía los gestos de un saludo.
 
 
 
@@ -655,165 +645,161 @@ brazo encogido les hacía los gestos de un saludo.
 
 Y cuando ya doblaron en la esquina de la quinta, Erdosain dijo:
 
--¿Sabe que no tengo cómo agradecerle este enorme favor que me ha hecho? ¿Por qué me regaló usted este dinero?
+–¿Sabe que no tengo cómo agradecerle este enorme favor que me ha hecho? ¿Por qué me regaló usted este dinero?
 
 El otro, que caminaba moviendo ligeramente los hombros, se volvió displicente y dijo:
 
--No sé. Me encontró en buen momento. Si eso uno tuviera que hacerlo todos los días...pero así... Además que, imagínese, en una semana lo recupero...
+–No sé. Me encontró en buen momento. Si eso uno tuviera que hacerlo todos los días... pero así... Además que, imagínese, en una semana lo recupero...
 
 La pregunta se le escapó a Erdosain.
 
--¿Y cómo es que teniendo usted una fortuna sigue en la «vida»?
+–¿Y cómo es que teniendo usted una fortuna sigue en la «vida»?
 
 Haffner se volvió, agresivo, luego:
 
--Vea, amigo, la «vida» no es para todos los hombres. ¿Sabe? ¿Por qué yo voy a dejar tres mujeres que rinden dos mil pesos mensuales sin ningún trabajo? ¿Las dejaría usted? No. ¿Entonces?
+–Vea, amigo, la «vida» no es para todos los hombres. ¿Sabe? ¿Por qué yo voy a dejar tres mujeres que rinden dos mil pesos mensuales sin ningún trabajo? ¿Las dejaría usted? No. ¿Entonces?
 
--¿Y usted no las quiere? ¿Ninguna de ellas lo atrae especialmente?
+–¿Y usted no las quiere? ¿Ninguna de ellas lo atrae especialmente?
 
 Recién después de lanzada esta pregunta Erdosain comprendió que acababa de decir una tontería. El macró lo miró un segundo, y repuso:
 
--Escúcheme bien. Si mañana me viniera a ver un médico y me dijera: la Vasca se muere dentro de una semana la saque o no del prostíbulo, yo a la Vasca, que me ha dado treinta mil pesos en cuatro años, la dejo que trabaje los seis días y que reviente el séptimo.
+–Escúcheme bien. Si mañana me viniera a ver un médico y me dijera: la Vasca se muere dentro de una semana la saque o no del prostíbulo, yo a la Vasca, que me ha dado treinta mil pesos en cuatro años, la dejo que trabaje los seis días y que reviente el séptimo.
 
 La voz del macró había enronquecido. Había un no sé qué de amargura rabiosa en sus palabras, esa amargura que más tarde Erdosain reconocería en la voz de todos esos pol­trones taciturnos y canallas aburridos.
 
--¿Lástima? -continuó el otro-. Amigo, a la mujer de la vida no hay que tenerle lásti­ma. No hay mujer más perra, más dura, más amarga que la mujer de la vida. No se asombre, yo las conozco. Sólo a palos se las puede manejar. Usted cree como el noventa por ciento que el cafishio es el explotador y la prostituta la víctima. Pero dígame: ¿para qué precisa una mujer todo el dinero que ella gana? Lo que no han dicho los novelistas es que la mujer de la vida que no tiene hombre anda desesperada buscando uno que la engañe, que le rompa el alma de cuando en cuando y que le saque toda la plata que gana, porque es así de bestia. Se ha dicho que la mujer es igual al hombre. Mentiras. La mujer es inferior al hombre. Fíjese en las tribus salvajes. Ella es la que cocina, trabaja, hace todo, mientras que el macho va de caza o a guerrear. Lo mismo pasa en la vida moderna. El hombre, salvo ganar dinero, no hace nada. Y créame, mujer de la vida a la que no se le saca el dinero, lo desprecia. Sí, señor, en cuanto le empieza a tomar cariño, lo primero que desea es que le pidan... Y qué alegría la de ella el día que usted le dice: «Ma chérie», ¿podes prestarme cien pesos? Entonces esa mujer se desata, está contenta. Al fin la sucia plata que gana le sirve para algo, para hacer feliz a su hombre. Claro, los novelistas no han escrito esto. Y la gente nos cree unos monstruos, o unos animales exóticos, como nos han pintado los saineteros. Pero venga a vivir a nuestro ambien­te, conózcalo, y se va a dar cuenta de que es igual al de la burguesía y al de nuestra aristocra­cia. La mantenida desprecia a la mujer de cabaret, la mujer de cabaret desprecia a la yiranta, la yiranta desprecia a la mujer de prostíbulo, y, cosa curiosa, así como la mujer que está en un prostíbulo elige casi siempre como hombre a un sujeto de avería, la de cabaret carga con un
-
-niño bien o un doctor atorrante para que la explote. ¿La psicología de la mujer de la vida? Está encerrada en estas palabras, que me decía llorando una mujercita a quien largó un amigo mío: «Encoré avec mon cul je peu soutenir un homme». Eso no lo sabe la gente ni los nove­listas. Un proverbio francés ya lo dice: «Gueuse seule ne peut pas mener son cul».
+–¿Lástima? –continuó el otro–. Amigo, a la mujer de la vida no hay que tenerle lásti­ma. No hay mujer más perra, más dura, más amarga que la mujer de la vida. No se asombre, yo las conozco. Sólo a palos se las puede manejar. Usted cree como el noventa por ciento que el cafishio es el explotador y la prostituta la víctima. Pero dígame: ¿para qué precisa una mujer todo el dinero que ella gana? Lo que no han dicho los novelistas es que la mujer de la vida que no tiene hombre anda desesperada buscando uno que la engañe, que le rompa el alma de cuando en cuando y que le saque toda la plata que gana, porque es así de bestia. Se ha dicho que la mujer es igual al hombre. Mentiras. La mujer es inferior al hombre. Fijese en las tribus salvajes. Ella es la que cocina, trabaja, hace todo, mientras que el macho va de caza o a guerrear. Lo mismo pasa en la vida moderna. El hombre, salvo ganar dinero, no hace nada. Y créame, mujer de la vida a la que no se le saca el dinero, lo desprecia. Sí, señor, en cuanto le empieza a tomar cariño, lo primero que desea es que le pidan... Y qué alegría la de ella el día que usted le dice: «Ma chérie», ¿podes prestarme cien pesos? Entonces esa mujer se desata, está contenta. Al fin la sucia plata que gana le sirve para algo, para hacer feliz a su hombre. Claro, los novelistas no han escrito esto. Y la gente nos cree unos monstruos, o unos animales exóticos, como nos han pintado los saineteros. Pero venga a vivir a nuestro ambien­te, conózcalo, y se va a dar cuenta de que es igual al de la burguesía y al de nuestra aristocracia. La mantenida desprecia a la mujer de cabaret, la mujer de cabaret desprecia a la yiranta, la yiranta desprecia a la mujer de prostíbulo, y, cosa curiosa, así como la mujer que está en un prostíbulo elige casi siempre como hombre a un sujeto de avería, la de cabaret carga con un niño bien o un doctor atorrante para que la explote. ¿La psicología de la mujer de la vida? Está encerrada en estas palabras, que me decía llorando una mujercita a quien largó un amigo mío: «Encoré avec mon cul je peu soutenir un homme». Eso no lo sabe la gente ni los nove­listas. Un proverbio francés ya lo dice: «Gueuse seule ne peut pas mener son cul».
 
 Erdosain lo contemplaba estupefacto. Haffner continuó:
 
--¿Quién la cuida como el cafishio? ¿Quién la cuida cuando está enferma, cuando cae presa? ¿Qué sabe la gente? Si un sábado a la mañana la oyera usted a una mujer decirle a su «marlu»: «Mon chérí, hice cincuenta latas más que la semana pasada», usted se haría cafishio, ¿sabe? Porque esa mujer le dice «hice cincuenta latas» con el mismo tono que una mujer honrada le diría a su marido: «Querido, este mes, por no comprarme un traje y lavarme la ropa, he economizado treinta pesos». Créame, amigo, la mujer, sea o no honrada, es un animal que tiende al sacrificio. Ha sido construida así. ¿Por qué cree usted que los padres de la Iglesia despreciaban tanto a la mujer? La mayoría de ellos habían vivido como grandes bacanes y sabían qué animalita es. Y la de la vida es peor aún. Es como una criatura: hay que enseñarle de todo. «Por aquí caminarás, frente a esta esquina no debes pasar, a tal 'fioca' no hay que saludarlo. No armes bronca con esa mujer». Todo hay que enseñárselo.
+–¿Quién la cuida como el cafishio? ¿Quién la cuida cuando está enferma, cuando cae presa? ¿Qué sabe la gente? Si un sábado a la mañana la oyera usted a una mujer decirle a su «marlu»: «Mon chérí, hice cincuenta latas más que la semana pasada», usted se haría cafishio, ¿sabe? Porque esa mujer le dice «hice cincuenta latas» con el mismo tono que una mujer honrada le diría a su marido: «Querido, este mes, por no comprarme un traje y lavarme la ropa, he economizado treinta pesos». Créame, amigo, la mujer, sea o no honrada, es un animal que tiende al sacrificio. Ha sido construida así. ¿Por qué cree usted que los padres de la Iglesia despreciaban tanto a la mujer? La mayoría de ellos habían vivido como grandes bacanes y sabían qué animalita es. Y la de la vida es peor aún. Es como una criatura: hay que enseñarle de todo. «Por aquí caminarás, frente a esta esquina no debes pasar, a tal 'fioca' no hay que saludarlo. No armes bronca con esa mujer». Todo hay que enseñárselo.
 
 Caminaban junto a los bardales, y en el dulce atardecer las palabras del macró abrían un paréntesis de estrañeza en Erdosain. Comprendía que se encontraba junto a una vida substancialmente distinta a la suya. Entonces, le preguntó:
 
--¿Y cómo se inició usted en la «vida»?
+–¿Y cómo se inició usted en la «vida»?
 
--En ese tiempo era joven. Tenía veintitrés años y una cátedra de matemáticas. Porque yo soy profesor -añadió orgullosamente Haffner-, profesor de matemáticas. Con mi cátedra iba viviendo, cuando en un prostíbulo de la calle Rincón encontré una noche a una francesita que me gustó. Hace de esto diez años. Precisamente en esos días había recibido una herencia de cinco mil pesos de un pariente. Lucienne me agradó, y le ofrecí que viniera a vivir conmi­go. Tenía un cafishio, el Marsellés, un gigante brutal, a quien veía de vez en cuando... No sé si por la labia, o porque era lindo, el caso es que la mujer se enamoró, y una noche de tormenta la saqué de la casa. Fue eso una novela. Nos fuimos a las sierras de Córdoba, después a Mar del Plata, y cuando los cinco mil pesos se terminaron, le dije: «Bueno, adiós idilio. Se terminó». Entonces ella me dijo: «No, mi querido, nosotros no nos separaremos más».
+–En ese tiempo era joven. Tenía veintitrés años y una cátedra de matemáticas. Porque yo soy profesor –añadió orgullosamente Haffner–, profesor de matemáticas. Con mi cátedra iba viviendo, cuando en un prostíbulo de la calle Rincón encontré una noche a una francesita que me gustó. Hace de esto diez años. Precisamente en esos días había recibido una herencia de cinco mil pesos de un pariente. Lucienne me agradó, y le ofrecí que viniera a vivir conmigo. Tenía un cafishio, el Marsellés, un gigante brutal, a quien veía de vez en cuando... No sé si por la labia, o porque era lindo, el caso es que la mujer se enamoró, y una noche de tormenta la saqué de la casa. Fue eso una novela. Nos fuimos a las sierras de Córdoba, después a Mar del Plata, y cuando los cinco mil pesos se terminaron, le dije: «Bueno, adiós idilio. Se terminó». Entonces ella me dijo: «No, mi querido, nosotros no nos separaremos más».
 
 Ahora iban bajo las bóvedas de verdura, ramas entrelazadas y ábsides de tallos.
 
--Yo estaba celoso. ¿Sabe usted lo que es estar celoso de una mujer que se acuesta con todos? ¿Y sabe usted la emoción del primer almuerzo que paga ella con plata del «mishé»? ¿Se imagina la felicidad de comer con los tenedores cruzados, mientras el mozo los mira a usted y a ella sabiendo quienes son? ¿Y el placer de salir a la calle con ella prendida de un brazo mientras los «tiras» lo relojean? ¿Y ver que ella, que se acuesta con tantos hombres, lo prefiere a usted, únicamente a usted? Eso es muy lindo, amigo, cuando se hace la carrera. Y ella es la que se preocupa de que usted se consiga otra mujer para que la explote, ella es la que la trae a su casa diciendo: «vamos a ser cuñadas», ella es la que la varea a la primeriza para que levante únicamente «viajes» para usted, y cuanto más tímido y vergonzoso es usted, más goza ella en destruir sus escrúpulos, en hundirlo en su basura, y de pronto... cuando menos se acuerda se encuentra enterrado hasta los pelos en el barro... y entonces hay que bailar. Y mientras la mujer está metida hay que aprovechar, porque un día le da una viaraza, enloquece por otro, y con la misma inconsciencia con que lo siguió a usted se sacrifica de nuevo. Me dirá usted: ¿para qué necesita una mujer un hombre? Mas, desde ya, le diré: Ningún dueño de prostíbulo va a tratar con una mujer. Con quien trata es con su «marlu». El cafishio le da a Una mujer tranquilidad para ejercer su vida. Los «tiras» no la molestan. Si que presa, él la
+–Yo estaba celoso. ¿Sabe usted lo que es estar celoso de una mujer que se acuesta con todos? ¿Y sabe usted la emoción del primer almuerzo que paga ella con plata del «mishé»? ¿Se imagina la felicidad de comer con los tenedores cruzados, mientras el mozo los mira a usted y a ella sabiendo quienes son? ¿Y el placer de salir a la calle con ella prendida de un brazo mientras los «tiras» lo relojean? ¿Y ver que ella, que se acuesta con tantos hombres, lo prefiere a usted, únicamente a usted? Eso es muy lindo, amigo, cuando se hace la carrera. Y ella es la que se preocupa de que usted se consiga otra mujer para que la explote, ella es la que la trae a su casa diciendo: «vamos a ser cuñadas», ella es la que la varea a la primeriza para que levante únicamente «viajes» para usted, y cuanto más tímido y vergonzoso es usted, más goza ella en destruir sus escrúpulos, en hundirlo en su basura, y de pronto... cuando menos se acuerda se encuentra enterrado hasta los pelos en el barro... y entonces hay que bailar. Y mientras la mujer está metida hay que aprovechar, porque un día le da una viaraza, enloquece por otro, y con la misma inconsciencia con que lo siguió a usted se sacrifica de nuevo. Me dirá usted: ¿para qué necesita una mujer un hombre? Mas, desde ya, le diré: Ningún dueño de prostíbulo va a tratar con una mujer. Con quien trata es con su «marlu». El cafishio le da a una mujer tranquilidad para ejercer su vida. Los «tiras» no la molestan. Si cae presa, él la saca; si está enferma, él la lleva a un sanatorio y la hace cuidar, y le evita líos y mil cosas fantásticas. Vea, mujer que en el ambiente trabaja por su cuenta termina siendo siempre víctima de un asalto, una estafa o un atropello bárbaro. En cambio, mujer que tiene un hom­bre trabaja tranquila, sosegada, nadie se mete con ella y todos la respetan. Y ya que ella, por un motivo o por otro, eligió su vida, es lógico que por su dinero pueda darse la felicidad que necesita.
 
-saca; si está enferma, él la lleva a un sanatorio y la hace cuidar, y le evita líos y mil cosas fantásticas. Vea, mujer que en el ambiente trabaja por su cuenta termina siendo siempre víctima de un asalto, una estafa o un atropello bárbaro. En cambio, mujer que tiene un hom­bre trabaja tranquila, sosegada, nadie se mete con ella y todos la respetan. Y ya que ella, por un motivo o por otro, eligió su vida, es lógico que por su dinero pueda darse la felicidad que necesita.
-
-«Claro, para usted todo esto es nuevo, pero ya se va ir haciendo. Y si no, dígame: ¿cómo se explica que haya 'fioca' que tenga hasta siete mujeres? El taño Repollo llegó en sus buenos tiempos a tener once mujeres. El gallego Julio, ocho. No hay francés casi que no tenga tres mujeres. Y ellas se conocen, y no sólo se conocen, sino que saben vivir juntas y rivalizan en quien le da más, porque es un orgullo ser la preferida de un hombre que los sosiega a los pesquisas más prepotentes de una sola mirada. Y pobrecitas, son tan locas, que uno no sabe si compadecerlas o romperles la cabeza de un palo».
+«Claro, para usted todo esto es nuevo, pero ya se va ir haciendo. Y si no, dígame: ¿cómo se explica que haya 'fioca' que tenga hasta siete mujeres? El tano Repollo llegó en sus buenos tiempos a tener once mujeres. El gallego Julio, ocho. No hay francés casi que no tenga tres mujeres. Y ellas se conocen, y no sólo se conocen, sino que saben vivir juntas y rivalizan en quien le da más, porque es un orgullo ser la preferida de un hombre que los sosiega a los pesquisas más prepotentes de una sola mirada. Y pobrecitas, son tan locas, que uno no sabe si compadecerlas o romperles la cabeza de un palo».
 
 Erdosain se sentía anonadado por el desprecio formidable que ese hombre revelaba hacia las mujeres. Y recordaba que en otra oportunidad el Astrólogo le había dicho: «El Rufián Melancólico es un tipo que al ver una mujer lo primero que piensa es esto: Esta en la calle rendiría cinco, diez o veinte pesos. Nada más».
 
 Y ahora sintió Erdosain que el hombre le repugnaba. Para cambiar de conversación, dijo:
 
--Dígame... ¿Usted cree en el éxito de la empresa del Astrólogo?
+–Dígame... ¿Usted cree en el éxito de la empresa del Astrólogo?
 
--No.
+–No.
 
--¿Y él sabe que usted no cree?
+–¿Y él sabe que usted no cree?
 
--Sí.
+–Sí.
 
--¿Y por qué usted lo acompaña?
+–¿Y por qué usted lo acompaña?
 
--Yo lo acompaño relativamente, y de aburrido que estoy. Ya que la vida no tiene ningún sentido, es igual seguir cualquier corriente.
+–Yo lo acompaño relativamente, y de aburrido que estoy. Ya que la vida no tiene ningún sentido, es igual seguir cualquier corriente.
 
--¿Para usted la vida no tiene sentido?
+–¿Para usted la vida no tiene sentido?
 
--Absolutamente ninguno. Nacemos, vivimos, morimos, sin que por eso dejen las estrellas de moverse y las hormigas de trabajar.
+–Absolutamente ninguno. Nacemos, vivimos, morimos, sin que por eso dejen las estrellas de moverse y las hormigas de trabajar.
 
--¿Y se aburre mucho usted?
+–¿Y se aburre mucho usted?
 
--Regular. He organizado mi vida como la de un industrial. Todos los días me acuesto a las doce y me levanto a las nueve de la mañana. Hago una hora de ejercicio, me baño, leo los diarios, almuerzo, duermo una siesta, a las seis tomo el vermouth y voy a lo del peluque­ro, a las ocho ceno, después salgo al café, y dentro de dos años, cuando tenga doscientos mil pesos, me retiraré del oficio para vivir definitivamente de mis rentas.
+–Regular. He organizado mi vida como la de un industrial. Todos los días me acuesto a las doce y me levanto a las nueve de la mañana. Hago una hora de ejercicio, me baño, leo los diarios, almuerzo, duermo una siesta, a las seis tomo el vermouth y voy a lo del peluque­ro, a las ocho ceno, después salgo al café, y dentro de dos años, cuando tenga doscientos mil pesos, me retiraré del oficio para vivir definitivamente de mis rentas.
 
 Y en realidad, ¿cuál va a ser su intervención en la sociedad del Astrólogo? Si el Astrólogo consigue dinero, guiarlo en la junta de mujeres y en la instalación del prostíbulo.
 
--Pero usted, en su interior, ¿qué piensa del Astrólogo?
+–Pero usted, en su interior, ¿qué piensa del Astrólogo?
 
--Que es un maniático que puede tener o no éxito.
+–Que es un maniático que puede tener o no éxito.
 
--Pero sus ideas...
+–Pero sus ideas...
 
--Algunas son embrolladas, otras claras, y, francamente yo no sé hasta dónde quiere apuntar ese hombre. Unas veces usted cree estar oyendo a un reaccionario, otras a un rojo, y, a decir la verdad, me parece que ni él mismo sabe lo que quiere.
+–Algunas son embrolladas, otras claras y, francamente yo no sé hasta dónde quiere apuntar ese hombre. Unas veces usted cree estar oyendo a un reaccionario, otras a un rojo, y, a decir la verdad, me parece que ni él mismo sabe lo que quiere.
 
--¿Y si tuviera éxito?...
+–¿Y si tuviera éxito?...
 
--Entonces ni Dios sabe lo que puede ocurrir. ¡Ah!, a propósito, ¿usted le habló de cultivos de bacilos del cólera asiático?
+–Entonces ni Dios sabe lo que puede ocurrir. ¡Ah!, a propósito, ¿usted le habló de cultivos de bacilos del cólera asiático?
 
--Sí...sería un magnífico medio de combate contra el ejército.
+–Sí... sería un magnífico medio de combate contra el ejército.
 
 Desparramar un cultivo en cada cuartel. ¿Se da cuenta? Simultáneamente, treinta o cuarenta hombres pueden destruir el ejército y dejar que las masas proletarias hagan la revolución...
 
--El Astrólogo lo admira mucho a usted. Siempre me ha hablado de usted como de un individuo que tiene grandes posibilidades de éxito.
+–El Astrólogo lo admira mucho a usted. Siempre me ha hablado de usted como de un individuo que tiene grandes posibilidades de éxito.
 
 Erdosain sonrió halagado.
 
--Sí, algo estudia uno para destruir esta sociedad. Pero volviendo a lo de antes: lo que yo no concibo es su posición respecto a nosotros...
+–Sí, algo estudia uno para destruir esta sociedad. Pero volviendo a lo de antes: lo que yo no concibo es su posición respecto a nosotros...
 
 Haffner se volvió rápidamente, midió de una mirada a Erdosain como extrañado de los términos de éste, y luego, sonriendo burlonamente, agregó:
 
--Yo no estoy en ninguna posición. Entiéndame bien. A mí no me perjudica ayudar al Astrólogo. Lo demás, sus teorías, las tomo a cuenta de conversación. El es para mí un amigo que piensa instalar un negocio, previsto y tolerado por nuestras leyes. Eso es todo. Ahora, que el dinero que él gane con ese negocio lo invierta en una sociedad secreta o en un convenio de monjas, personalmente no me interesa. Ya ve usted entonces que mi actuación en la famo­sa sociedad no puede ser más inocente.
+–Yo no estoy en ninguna posición. Entiéndame bien. A mí no me perjudica ayudar al Astrólogo. Lo demás, sus teorías, las tomo a cuenta de conversación. Él es para mí un amigo que piensa instalar un negocio, previsto y tolerado por nuestras leyes. Eso es todo. Ahora, que el dinero que él gane con ese negocio lo invierta en una sociedad secreta o en un convenio de monjas, personalmente no me interesa. Ya ve usted entonces que mi actuación en la famo­sa sociedad no puede ser más inocente.
 
--¿Y a usted le resulta lógico pensar que una sociedad revolucionaria se base en la explotación del vicio de la mujer?
+–¿Y a usted le resulta lógico pensar que una sociedad revolucionaria se base en la explotación del vicio de la mujer?
 
 El Rufián frunció los labios. Luego, mirando de reojo a Erdosain, se explicó:
 
--Lo que usted dice no tiene sentido. La sociedad actual se basa en la explotación del hombre, de la mujer y del niño. Vaya, si quiere tener conciencia de lo que es la explotación capitalista, a las fundiciones de hierro de Avellaneda, a los frigoríficos y a las fábricas de vidrio, manufacturas de fósforos y de trabajo. -Reía desagradablemente al decir estas cosas-. Nosotros, los hombres del ambiente, tenemos a una, a dos mujeres; ellos, los industriales, a una multitud de seres humanos. ¿Cómo hay que llamarles a esos hombres? ¿Y quién es más desalmado, el dueño de un prostíbulo o la sociedad de accionistas de una empresa? Y sin ir más lejos, ¿no le exigían a usted que fuera honrado con un sueldo de cien pesos y llevando diez mil en la cartera?
+–Lo que usted dice no tiene sentido. La sociedad actual se basa en la explotación del hombre, de la mujer y del niño. Vaya, si quiere tener conciencia de lo que es la explotación capitalista, a las fundiciones de hierro de Avellaneda, a los frigoríficos y a las fábricas de vidrio, manufacturas de fósforos y de trabajo –reía desagradablemente al decir estas cosas–. Nosotros, los hombres del ambiente, tenemos a una, a dos mujeres; ellos, los industriales, a una multitud de seres humanos. ¿Cómo hay que llamarles a esos hombres? ¿Y quién es más desalmado, el dueño de un prostíbulo o la sociedad de accionistas de una empresa? Y sin ir más lejos, ¿no le exigían a usted que fuera honrado con un sueldo de cien pesos y llevando diez mil en la cartera?
 
--Tiene razón... pero, entonces, usted ¿por qué me facilitó el dinero?
+–Tiene razón... pero, entonces, usted ¿por qué me facilitó el dinero?
 
--Eso es harina de otro costal.
+–Eso es harina de otro costal.
 
--Pero a mí eso me preocupa.
+–Pero a mí eso me preocupa.
 
--Bueno, has tal a vista.
+–Bueno, hasta la vista.
 
 Y antes de que Erdosain pudiera contestarle, el Rufián tomó por una diagonal arbo­lada. Andaba apresuradamente. Erdosain le miró un instante, luego echó a caminar tras él, y le alcanzó junto a una quinta. Haffner se volvió irritado, y ya estridente exclamó:
 
--¿Se puede saber qué es lo que quiere usted de mí?...
+–¿Se puede saber qué es lo que quiere usted de mí?...
 
--¿Lo que quiero?... Quiero decirle esto: Que no le agradezco absolutamente nada el dinero que me ha dado. ¿Sabe? ¿Quiere el cheque? Aquí lo tiene.
+–¿Lo que quiero?... Quiero decirle esto: Que no le agradezco absolutamente nada el dinero que me ha dado. ¿Sabe? ¿Quiere el cheque? Aquí lo tiene.
 
 Y, efectivamente, se lo alcanzaba, pero el Rufián lo examinó esta vez despectiva­mente:
 
--No sea ridículo, ¿quiere? Vaya y pague.
+–No sea ridículo, ¿quiere? Vaya y pague.
 
 Los alambrados ondularon ante los ojos de Erdosain. Sufría visiblemente, porque palideció hasta quedar amarillo. Se apoyó en un poste, creía que iba a vomitar. Haffner, detenido ante él, le preguntó condescendiente:
 
--¿Se le pasa el mareo?
+–¿Se le pasa el mareo?
 
--Sí... un poco...
+–Sí... un poco...
 
--Usted está mal... tiene que hacerse ver...
+–Usted está mal... tiene que hacerse ver...
 
 Caminaron unos pasos en silencio. Como el exceso de luz le molestaba a Erdosain, cruzaron la vereda, que estaba en la sombra. Llegaron así hasta la estación del ferrocarril.
 
 Haffner caminaba lentamente por el andén. De pronto se volvió a Erdosain:
 
--¿Nunca le ha ocurrido a usted tener antojos crueles acerca de las personas?
+–¿Nunca le ha ocurrido a usted tener antojos crueles acerca de las personas?
 
--Sí, a veces...
+–Sí, a veces...
 
--Qué raro... porque ahora estaba recordando la manía que tuve un tiempo de inducir a la prostitución a una muchacha que estaba ciega...
+–Qué raro... porque ahora estaba recordando la manía que tuve un tiempo de inducir a la prostitución a una muchacha que estaba ciega...
 
--¿Y todavía vive?...
+–¿Y todavía vive?...
 
--Sí, ahora está embarazada. ¿Se da cuenta? Una ciega embarazada. Un día de estos lo voy a llevar. La va a conocer. Un espectáculo interesante, le prevengo. ¿Se da cuenta? Ciega y preñada. Es mala, siempre anda con agujas en las manos... Además es golosa como una cerda. A usted le va a interesar.
+–Sí, ahora está embarazada. ¿Se da cuenta? Una ciega embarazada. Un día de estos lo voy a llevar. La va a conocer. Un espectáculo interesante, le prevengo. ¿Se da cuenta? Ciega y preñada. Es mala, siempre anda con agujas en las manos... Además es golosa como una cerda. A usted le va a interesar.
 
--Y usted piensa...
+–Y usted piensa...
 
--Sí, en cuanto el Astrólogo instale el prostíbulo la primera que va a entrar va a ser ella. La tendremos escondida: será el plato raro...
+–Sí, en cuanto el Astrólogo instale el prostíbulo la primera que va a entrar va a ser ella. La tendremos escondida: será el plato raro...
 
--¿Sabe que usted es más raro que ella?
+–¿Sabe que usted es más raro que ella?
 
--¿Por?...
+–¿Por?...
 
--Porque uno no puede explicárselo a usted. Mientras que usted me hablaba de la ciega, yo pensaba en lo que me había contado el Astrólogo. Que usted tuvo relaciones con una mujer honesta, que el azar llevó a esta mujer honesta a su casa y que usted la respetó. Más aún, déjeme hablar: esa mujer lo quería a usted, era virgen, ¿por qué la respetó?
+–Porque uno no puede explicárselo a usted. Mientras que usted me hablaba de la ciega, yo pensaba en lo que me había contado el Astrólogo. Que usted tuvo relaciones con una mujer honesta, que el azar llevó a esta mujer honesta a su casa y que usted la respetó. Más aún, déjeme hablar: esa mujer lo quería a usted, era virgen, ¿por qué la respetó?
 
--Eso no tiene importancia. Un poco de dominio de sí mismo, nada más.
+–Eso no tiene importancia. Un poco de dominio de sí mismo, nada más.
 
--¿Y el caso del collar?
+–¿Y el caso del collar?
 
 Erdosain sabía, por el Astrólogo, que el Rufián le había pedido una prueba material de cariño a una bailarina; que ésta, ante otras mujeres, se había desprendido de un magnífico collar que le regalara un amante, un viejo importador de tejidos. La escena fue curiosa, porque el viejo se encontraba en las inmediaciones. Haffner recibió el collar y ante el asom­bro de todos lo sopesó, examinó el quilate de las piedras, y luego se lo devolvió sonriendo burlonamente.
 
--Lo del collar es sencillo -repuso Haffner-. Yo estaba un poco bebido. Eso no me impedía saber que el gesto que yo hacía me daría un prestigio enorme entre esa canalla del cabaret, sobre todo en las mujeres, que son un poco fantasiosas. Lo curioso del asunto es que media hora después vino el viejo que le había regalado el collar a René a darme humildemen­te las gracias por no haber querido yo aceptar el regalo. ¿Se da cuenta? Desde otra mesa había seguido tembloroso la escena, y si no intervino fue por temor a suscitar un escándalo. Pero había temblado por el destino de su collar.... Ya ve usted cuánta suciedad... pero allí viene el tren a La Plata. Querido amigo, hasta pronto... ¡Ah!, concurra a la reunión que el miércoles hay en la casa del Astrólogo. Va a encontrar otros más interesantes que yo.
+–Lo del collar es sencillo –repuso Haffner–. Yo estaba un poco bebido. Eso no me impedía saber que el gesto que yo hacía me daría un prestigio enorme entre esa canalla del cabaret, sobre todo en las mujeres, que son un poco fantasiosas. Lo curioso del asunto es que media hora después vino el viejo que le había regalado el collar a René a darme humildemen­te las gracias por no haber querido yo aceptar el regalo. ¿Se da cuenta? Desde otra mesa había seguido tembloroso la escena, y si no intervino fue por temor a suscitar un escándalo. Pero había temblado por el destino de su collar.... Ya ve usted cuánta suciedad... pero allí viene el tren a La Plata. Querido amigo, hasta pronto... ¡Ah!, concurra a la reunión que el miércoles hay en la casa del Astrólogo. Va a encontrar otros más interesantes que yo.
 
 Erdosain cruzó pensativo a la plataforma donde salían los trenes para Buenos Aires. Indudablemente, Haffner era un monstruo.
 
@@ -822,7 +808,7 @@ Erdosain cruzó pensativo a la plataforma donde salían los trenes para Buenos A
 
 A las ocho de la noche llegó a su casa.
 
--El comedor estaba iluminado... Pero expliquémonos -contaba más tarde Erdosain-, mi esposa y yo habíamos sufrido tanta miseria, que el llamado comedor consistía en cuarto vacío de muebles. La otra pieza hacía de dormitorio. Usted me dirá cómo siendo pobres alquilábamos una casa, pero éste era un antojo de mi esposa, que recordando tiempos mejo­res, no se avenía a no «tener armado» su hogar.
+–El comedor estaba iluminado... Pero expliquémonos –contaba más tarde Erdosain–, mi esposa y yo habíamos sufrido tanta miseria, que el llamado comedor consistía en un cuarto vacío de muebles. La otra pieza hacía de dormitorio. Usted me dirá cómo siendo pobres alquilábamos una casa, pero éste era un antojo de mi esposa, que recordando tiempos mejo­res, no se avenía a no «tener armado» su hogar.
 
 «En el comedor no había más mueble que una mesa de pino. En un rincón colgaban de un alambre nuestras ropas, y otro ángulo estaba ocupado por un baúl con conteras de lata y que producía una sensación de vida nómade que terminaría con un viaje definitivo. Más tarde, cuántas veces he pensado en 'la sensación de viaje' que aquel baúl barato, estibado en un rincón, lanzaba a mi tristeza de hombre que se sabe al margen de la cárcel.
 
@@ -832,85 +818,83 @@ A las ocho de la noche llegó a su casa.
 
 «Mis primeras palabras fueron:
 
-«-¿Qué pasa aquí?
+«–¿Qué pasa aquí?
 
-«-El señor... -mas avergonzándose, se corrigió-. Remo -dijo llamándome por mi nom­bre-, Remo, yo no voy a vivir más con vos.»
+«–El señor... –mas avergonzándose, se corrigió–. Remo –dijo llamándome por mi nom­bre–, Remo, yo no voy a vivir más con vos.»
 
 Erdosain no tuvo tiempo de temblar. El capitán tomó la palabra:
 
--Su esposa, a quien he conocido hace un tiempo...
+–Su esposa, a quien he conocido hace un tiempo...
 
--¿Y dónde la conoció usted?
+–¿Y dónde la conoció usted?
 
--¿Por qué preguntas esas cosas? -interrumpió Elsa.
+–¿Por qué preguntas esas cosas? –interrumpió Elsa.
 
--Sí, cierto -objetó el capitán-. Usted comprenderá que ciertas cosas no deben pregun­tarse...
+–Sí, cierto –objetó el capitán–. Usted comprenderá que ciertas cosas no deben pregun­tarse...
 
 Erdosain se ruborizó.
 
--Quizá usted tenga razón... disculpe...
+–Quizá usted tenga razón... disculpe...
 
--Y como usted no ganaba para mantenerla...
+–Y como usted no ganaba para mantenerla...
 
 Apretando el cabo del revólver en el bolsillo de su pantalón, Erdosain miró al capi­tán. Luego, involuntariamente, sonrió pensando que nada tenía que temer, ya que podía ma­tarlo.
 
--No creo que pueda causarle gracia lo que le digo.
+–No creo que pueda causarle gracia lo que le digo.
 
--No; sonreía de una ocurrencia estúpida... ¿Así que también le contó eso?
+–No; sonreía de una ocurrencia estúpida... ¿Así que también le contó eso?
 
--Sí, y además me habló de usted como de un genio en desgracia...
+–Sí, y además me habló de usted como de un genio en desgracia...
 
--Hablamos de tus inventos...
+–Hablamos de tus inventos...
 
--Sí... de su proyecto de metalizar las flores...
+–Sí... de su proyecto de metalizar las flores...
 
--¿Por qué te vas, entonces?
+–¿Por qué te vas, entonces?
 
--Estoy cansada, Remo.
+–Estoy cansada, Remo.
 
 Erdosain sintió que el furor le encrespaba la boca en malas palabras. La hubiera insultado, mas al pensar que el otro podía aplastarle la cara a puñetazos retuvo la injuria, replicando:
 
--Vos siempre estuviste cansada. En tu casa estabas cansada... aquí... allá... también
-
-allá en la montaña... ¿te acordás?
+–Vos siempre estuviste cansada. En tu casa estabas cansada... aquí... allá... también allá en la montaña... ¿te acordás?
 
 No sabiendo qué responder, Elsa inclinó la cabeza.
 
--Cansada... ¿qué es lo que tenes cansada vos?... Y todas están cansadas, no sé por qué... pero están cansadas... Usted, capitán, ¿no está cansado también?
+–Cansada... ¿qué es lo que tenés cansada vos?... Y todas están cansadas, no sé por qué... pero están cansadas... Usted, capitán, ¿no está cansado también?
 
 El intruso lo observó largamente.
 
--¿Y qué entiende usted por cansancio?
+–¿Y qué entiende usted por cansancio?
 
--El aburrimiento, la angustia... ¿no se ha fijado usted que éstos parecen los tiempos de tribulación de que habla la Biblia? Así los nombra un amigo mío que se ha casado con una coja. La coja es la ramera de las Escrituras...
+–El aburrimiento, la angustia... ¿no se ha fijado usted que éstos parecen los tiempos de tribulación de que habla la Biblia? Así los nombra un amigo mío que se ha casado con una coja. La coja es la ramera de las Escrituras...
 
--Nunca me di cuenta de eso.
+–Nunca me di cuenta de eso.
 
--En cambio yo sí. A usted le parecerá extraño que le hable de sufrimientos en estas circunstancias... pero es así... los hombres están tan tristes que tienen necesidad de ser humi­llados por alguien.
+–En cambio yo sí. A usted le parecerá extraño que le hable de sufrimientos en estas circunstancias... pero es así... los hombres están tan tristes que tienen necesidad de ser humi­llados por alguien.
 
--Yo no veo tal cosa.
+–Yo no veo tal cosa.
 
--Claro, usted con su sueldo... ¿Qué sueldo gana usted? ¿Quinientos?
+–Claro, usted con su sueldo... ¿Qué sueldo gana usted? ¿Quinientos?
 
--Más o menos.
+–Más o menos.
 
--Claro, con ese sueldo es lógico...
+–Claro, con ese sueldo es lógico...
 
--¿Qué es lógico?
+–¿Qué es lógico?
 
--Que no sienta su servidumbre.
+–Que no sienta su servidumbre.
 
 El capitán detuvo una mirada severa en Erdosain.
 
--Germán, no le haga caso -interrumpió Elsa-. Remo está siempre con esa historia de la angustia.
+–Germán, no le haga caso –interrumpió Elsa–. Remo está siempre con esa historia de la angustia.
 
--¿Es cierto?
+–¿Es cierto?
 
--Sí... ella, en cambio, cree en la felicidad, en el sentido de «eterna felicidad» que estaría en su vida si pudiera pasar los días entre fiestas...
+–Sí... ella, en cambio, cree en la felicidad, en el sentido de «eterna felicidad» que estaría en su vida si pudiera pasar los días entre fiestas...
 
--Detesto la miseria.
+–Detesto la miseria.
 
--Claro, porque vos no crees en la miseria... la horrible miseria está en nosotros, es la miseria de adentro... del alma que nos cala los huesos como la sífilis.
+–Claro, porque vos no creés en la miseria... la horrible miseria está en nosotros, es la miseria de adentro... del alma que nos cala los huesos como la sífilis.
 
 Callaron. El capitán, ostensiblemente aburrido, examinaba sus uñas, cuidadosamen­te lustradas.
 
@@ -918,147 +902,147 @@ Elsa miraba fijamente tras los rombos del velo, el semblante demacrado de aquel 
 
 De pronto el capitán levantó la cabeza.
 
--¿Y cómo piensa usted metalizar sus flores?
+–¿Y cómo piensa usted metalizar sus flores?
 
--Fácilmente... Se toma una rosa, por ejemplo, y se la sumerge en una solución de nitrato de plata disuelto en alcohol. Luego se coloca la flor a la luz que reduce el nitrato a plata metálica, quedando de consiguiente la rosa cubierta de una finísima película metálica, conductora de corriente. Luego se trata por el común procedimiento galvanoplastia» del cabreado... y, naturalmente, la flor queda convertida en una rosa de cobre. Tendría muchas aplicaciones.
+–Fácilmente... Se toma una rosa, por ejemplo, y se la sumerge en una solución de nitrato de plata disuelto en alcohol. Luego se coloca la flor a la luz que reduce el nitrato a plata metálica, quedando de consiguiente la rosa cubierta de una finísima película metálica, conductora de corriente. Luego se trata por el común procedimiento de galvanoplastia del cabreado... y, naturalmente, la flor queda convertida en una rosa de cobre. Tendría muchas aplicaciones.
 
--La idea es original.
+–La idea es original.
 
--¿No le decía yo, Germán, que Remo tiene talento?
+–¿No le decía yo, Germán, que Remo tiene talento?
 
--Lo creo.
+–Lo creo.
 
--Sí, puede ser que tenga talento, pero me falta vida... entusiasmo... algo que sea como un sueño extraordinario... una mentira grande que empuje la realización... pero, ha­blando de todo un poco, ¿esperan ustedes ser felices?
+–Sí, puede ser que tenga talento, pero me falta vida... entusiasmo... algo que sea como un sueño extraordinario... una mentira grande que empuje la realización... pero, ha­blando de todo un poco, ¿esperan ustedes ser felices?
 
--Sí.
+–Sí.
 
 Otra vez sobrevino el silencio. En torno de la lámpara amarilla los tres semblantes parecían tres mascarillas de cera. Erdosain sabía que dentro de breves instantes todo termina­ría y escarbando en su angustia, le preguntó al capitán:
 
--¿Por qué vino usted a mi casa?
+–¿Por qué vino usted a mi casa?
 
 El otro vaciló, después:
 
--Tenía interés en conocerlo.
+–Tenía interés en conocerlo.
 
--¿Le parecía divertido?
+–¿Le parecía divertido?
 
--No... le juro que no.
+–No... le juro que no.
 
--¿Y entonces?
+–¿Y entonces?
 
--Curiosidad de conocerlo. Su esposa me habló mucho de usted en estos últimos tiempos. Además, nunca imaginé encontrarme en una situación semejante... en realidad, no podría explicarme por qué he venido.
+–Curiosidad de conocerlo. Su esposa me habló mucho de usted en estos últimos tiempos. Además, nunca imaginé encontrarme en una situación semejante... en realidad, no podría explicarme por qué he venido.
 
--¿Ha visto usted? Hay cosas inexplicables. Yo, desde hace un rato, trato de explicar­me por qué no lo mato de un tiro teniendo el revólver aquí, en el bolsillo.
+–¿Ha visto usted? Hay cosas inexplicables. Yo, desde hace un rato, trato de explicar­me por qué no lo mato de un tiro teniendo el revólver aquí, en el bolsillo.
 
 Elsa levantó la cabeza hacia Erdosain, que estaba a la cabecera de la mesa... El capitán preguntó:
 
--¿Qué es lo que lo contiene?
+–¿Qué es lo que lo contiene?
 
--En verdad, no sé... o... sí, tengo la seguridad de que es por esto. Creo que en el corazón de cada uno de nosotros hay una longitud de destino. Es como una adivinación de las cosas por intermedio de un misterioso instinto. Lo que ahora me sucede, lo siento compren­dido en esa longitud de destino... algo así como si lo hubiera visto ya... no sé en qué parte.
+–En verdad, no sé... o... sí, tengo la seguridad de que es por esto. Creo que en el corazón de cada uno de nosotros hay una longitud de destino. Es como una adivinación de las cosas por intermedio de un misterioso instinto. Lo que ahora me sucede, lo siento compren­dido en esa longitud de destino... algo así como si lo hubiera visto ya... no sé en qué parte.
 
--¿Cómo?
+–¿Cómo?
 
--¿Qué decís?
+–¿Qué decís?
 
--No era porque vos me dieras motivo... no... ya te digo... una certidumbre remota.
+–No era porque vos me dieras motivo... no... ya te digo... una certidumbre remota.
 
--No lo entiendo.
+–No lo entiendo.
 
--Yo sí me entiendo. Vea, es así. De pronto a uno se le ocurre que tienen que sucederle determinadas cosas en la vida... para que la vida se transforme y se haga nueva.
+–Yo sí me entiendo. Vea, es así. De pronto a uno se le ocurre que tienen que sucederle determinadas cosas en la vida... para que la vida se transforme y se haga nueva.
 
--¿Y vos?
+–¿Y vos?
 
--¿Usted cree que su vida?
+–¿Usted cree que su vida?
 
 Erdosain, desentendiéndose de la pregunta, continuó:
 
--Y lo de ahora no me extraña. Si usted me dijera que fuese a comprarle un paquete de cigarrillos, a propósito, ¿tiene un cigarrillo usted?
+–Y lo de ahora no me extraña. Si usted me dijera que fuese a comprarle un paquete de cigarrillos, a propósito, ¿tiene un cigarrillo usted?
 
--Sírvase... ¿y luego?
+–Sírvase... ¿y luego?
 
--No sé. En estos últimos tiempos he vivido incoherentemente... aturdido por la an­gustia. Ya ve con qué tranquilidad converso con usted.
+–No sé. En estos últimos tiempos he vivido incoherentemente... aturdido por la an­gustia. Ya ve con qué tranquilidad converso con usted.
 
--Sí, siempre esperó él algo extraordinario.
+–Sí, siempre esperó él algo extraordinario.
 
--Y vos también.
+–Y vos también.
 
--¿Cómo? ¿Usted, Elsa, también?
+–¿Cómo? ¿Usted, Elsa, también?
 
--Sí.
+–Sí.
 
--¿Pero usted?
+–¿Pero usted?
 
--Siga, capitán, yo lo entiendo. Usted quiere decir que lo extraordinario de Elsa está ocurriendo ahora, ¿no?
+–Siga, capitán, yo lo entiendo. Usted quiere decir que lo extraordinario de Elsa está ocurriendo ahora, ¿no?
 
--Sí.
+–Sí.
 
--Pues está equivocado, ¿no es cierto, Elsa?
+–Pues está equivocado, ¿no es cierto, Elsa?
 
--¿Vos crees?
+–¿Vos creés?
 
--Decí la verdad, vos esperas algo extraordinario que no es esto, ¿no?
+–Decí la verdad, vos esperás algo extraordinario que no es esto, ¿no?
 
--No sé.
+–No sé.
 
--¿Ha visto, capitán? Siempre fue ésa nuestra vida. Estábamos los dos en silencio junto a esta mesa...
+–¿Ha visto, capitán? Siempre fue ésa nuestra vida. Estábamos los dos en silencio junto a esta mesa...
 
--Callate.
+–Callate.
 
--¿Para qué? Estábamos sentados y comprendíamos sin decirnos, lo que éramos, dos desdichados, de un desigual deseo. Y cuando nos acostábamos...
+–¿Para qué? Estábamos sentados y comprendíamos sin decirnos, lo que éramos, dos desdichados, de un desigual deseo. Y cuando nos acostábamos...
 
--¡Remo!
+–¡Remo!
 
--¡Señor Erdosain!
+–¡Señor Erdosain!
 
--Déjense de aspavientos ridículos... ¿no se van a acostar ustedes acaso?
+–Déjense de aspavientos ridículos... ¿no se van a acostar ustedes acaso?
 
--De esta forma no podemos seguir hablando.
+–De esta forma no podemos seguir hablando.
 
--Bueno, y cuando nos separábamos teníamos esta idea semejante: ¿y el placer de la vida y del amor consiste en esto?... Y sin decir nada comprendíamos que pensábamos en lo mismo... mas cambiando de tema... ¿piensan ustedes quedarse aquí en la ciudad?
+–Bueno, y cuando nos separábamos teníamos esta idea semejante: ¿y el placer de la vida y del amor consiste en esto?... Y sin decir nada comprendíamos que pensábamos en lo mismo... mas cambiando de tema... ¿piensan ustedes quedarse aquí en la ciudad?
 
 Súbitamente Erdosain tuvo la fría sensación del viaje.
 
-Le pareció verla a Elsa en el pasamano, bajo la hilera de vidriosos ojos de buey, contemplando el hilo azul de la distancia. El sol caía en los amarillos trinquetes de los más­tiles y en los aguilones negros de los guinches. Atardecía, pero ellos permanecían con el pensamiento fijo en otros climas, a la sombra de las camareras, apoyados en la pasarela blanca. El viento soplaba yodado en las olas y Elsa miraba las aguas a través de cuyo enreja­do cambiante se animaba su sombra.
+Le pareció verla a Elsa en el pasamano, bajo la hilera de vidriosos ojos de buey, contemplando el hilo azul de la distancia. El sol caía en los amarillos trinquetes de los más­tiles y en los aguilones negros de los guinches. Atardecía, pero ellos permanecían con el pensamiento fijo en otros climas, a la sombra de las camareras, apoyados en la pasarela blanca. El viento soplaba yodado en las olas y Elsa miraba las aguas a través de cuyo enrejado cambiante se animaba su sombra.
 
 Por momentos volvía la carita empalidecida y entonces ambos parecían escuchar un reproche que subía de lo profundo del mar.
 
 Y Erdosain se imaginaba que les decía:
 
--¿Qué hicieron del pobre muchachito? («Porque yo, a pesar de mi edad, era como un muchacho -decíame más tarde Remo-. ¿Usted comprende, un hombre que se deja llevar la mujer en sus barbas... es un desgraciado... es como un muchacho, comprende usted?»)
+–¿Qué hicieron del pobre muchachito? («Porque yo, a pesar de mi edad, era como un muchacho –decíame más tarde Remo–. ¿Usted comprende, un hombre que se deja llevar la mujer en sus barbas... es un desgraciado... es como un muchacho, comprende usted?»)
 
 Erdosain se apartó de la alucinación. Aquella pregunta que le surgió, estaba ahonda­da contra su voluntad en él.
 
--¿Me vas a escribir?
+–¿Me vas a escribir?
 
--¿Para qué?
+–¿Para qué?
 
--Sí, claro, ¿para qué? -repitió cerrando los ojos. Sentíase ahora más que nunca caído en una profundidad no soñada por hombre alguno.
+–Sí, claro, ¿para qué? –repitió cerrando los ojos. Sentíase ahora más que nunca caído en una profundidad no soñada por hombre alguno.
 
--Bueno, señor Erdosain -y el capitán se levantó-, nosotros nos retiramos.
+–Bueno, señor Erdosain –y el capitán se levantó–, nosotros nos retiramos.
 
--¡Ah, se van!... ¿Se van ya?
+–¡Ah, se van!... ¿Se van ya?
 
 Elsa le tendió su mano enguantada.
 
--¿Te vas?
+–¿Te vas?
 
--Sí... me voy... comprendes que...
+–Sí... me voy... comprendés que...
 
--Si... comprendo.
+–Sí... comprendo.
 
--No podía ser, Remo.
+–No podía ser, Remo.
 
--Sí, claro... no podía ser... claro...
+–Sí, claro... no podía ser... claro...
 
 El capitán describiendo un círculo en torno de la mesa, cogió la valija, la misma valija que Elsa trajo el día de su casamiento.
 
--Señor Erdosain, adiós.
+–Señor Erdosain, adiós.
 
--A sus órdenes, capitán... pero una cosa... ¿se van... vos, Elsa...vos te vas?
+–A sus órdenes, capitán... pero una cosa... ¿se van... vos, Elsa... vos te vas?
 
--Sí, nos vamos.
+–Sí, nos vamos.
 
--Permiso, me voy a sentar. Permítame un momento, capitán... un momentito.
+–Permiso, me voy a sentar. Permítame un momento, capitán... un momentito.
 
 El intruso reprimió palabras de impaciencia. Tenía unos brutales deseos de gritar a ese marido: «¡A ver, firme, imbécil», mas por consideración a Elsa se retuvo.
 
@@ -1066,163 +1050,165 @@ De pronto Erdosain abandonó la silla. Con lentitud fue hasta un rincón del cua
 
 Luego, volviéndose bruscamente al capitán, dijo con voz muy clara, en la que se adivinaba el contenido deseo de que fuera suave:
 
--¿Sabe usted por qué no lo mato como a un perro?
+–¿Sabe usted por qué no lo mato como a un perro?
 
 Los otros se volvieron alarmados.
 
--Pues porque estoy en frío.
+–Pues porque estoy en frío.
 
 Ahora Erdosain caminaba de un lado a otro de la habitación, con las manos cruzadas a la espalda. Ellos lo observaban, esperando algo.
 
 Por fin, el marido, sonriendo con un gesto, esguince pálido, continuó suavemente, languidecida su voz en una desesperación de sollozo retenido:
 
--Sí, estaba en frío... estoy en frío. -Ahora su mirada se había tornado vaga, pero sonreía con la misma sonrisa, extraña, alucinada-. Escúchenme... esto no tendrá explicación para ustedes, pero yo sí le he encontrado la explicación.
+–Sí, estaba en frío... estoy en frío –ahora su mirada se había tornado vaga, pero sonreía con la misma sonrisa, extraña, alucinada–. Escúchenme... esto no tendrá explicación para ustedes, pero yo sí le he encontrado la explicación.
 
 Sus ojos brillaban extraordinariamente y su voz enronqueció a través del esfuerzo que hizo por hablar.
 
--Vean... mi vida ha sido horriblemente ofendida... horriblemente magullada.
+–Vean... mi vida ha sido horriblemente ofendida... horriblemente magullada.
 
 Calló, deteniéndose en un ángulo de la pieza. En su rostro se mantenía la sonrisa extraña del hombre que está viviendo un sueño peligroso. Elsa, repentinamente irritada, mor­día la punta de su pañuelo. El capitán, de pie, junto a la valija, aguardaba.
 
 De pronto Erdosain sacó el revólver del bolsillo y lo arrojó a un rincón. La «Browning» desconchó el revoque del muro, golpeando pesadamente en el suelo.
 
--¡Para lo que sirve este trasto! -murmuró. Luego, con una mano en el bolsillo del saco y la sien apoyada en el muro, habló despacio-: Sí, mi vida ha sido horriblemente ofendi­da... humillada. Créalo, capitán. No se impaciente. Le voy a contar algo. Quien comenzó este feroz trabajo de humillación fue mi padre. Cuando yo tenía diez años y había cometido alguna falta, me decía: «Mañana te pegaré». Siempre era así, mañana... ¿Se dan cuenta?, mañana... Y esa noche dormía, pero dormía mal, con un sueño de perro, despertándome a media noche para mirar asustado los vidrios de la ventana y ver si ya era de día, mas cuando la luna cortaba de barrote del ventanillo, cerraba los ojos, diciéndome: falta mucho tiempo. Más tarde me despertaba otra vez, al sentir el canto de los gallos. La luna ya no estaba allí, pero una claridad azulada entraba por los cristales, y entonces yo me tapaba la cabeza con las sábanas para no mirarla, aunque sabía que estaba allí... aunque sabía que no había fuerza humana que pudiera echarla a esa claridad. Y cuando al fin me había dormido para mucho tiempo, una mano me sacudía la cabeza en la almohada. Era él que me decía con voz áspera: «Vamos... es hora». Y mientras yo me vestía lentamente, sentía que en el patio ese hombre movía la silla. «Vamos», me gritaba otra vez, y yo, hipnotizado, iba en línea en línea recta hacia él: quería hablar, pero eso era imposible ante su espantosa mirada. Caía su mano sobre mi hombro obligándome a arrodillarme, yo apoyaba el pecho en el asiento de la silla, tomaba mi cabeza entre sus rodillas y, de pronto, crueles latigazos me cruzaban las nalgas. Cuando me soltaba, corría llorando a mi cuarto. Una vergüenza enorme me hundía el alma en las tinieblas. Porque las tinieblas existen aunque usted no lo crea.
+–¡Para lo que sirve este trasto! –murmuró. Luego, con una mano en el bolsillo del saco y la sien apoyada en el muro, habló despacio–: Sí, mi vida ha sido horriblemente ofendi­da... humillada. Créalo, capitán. No se impaciente. Le voy a contar algo. Quien comenzó este feroz trabajo de humillación fue mi padre. Cuando yo tenía diez años y había cometido alguna falta, me decía: «Mañana te pegaré». Siempre era así, mañana... ¿Se dan cuenta?, mañana... Y esa noche dormía, pero dormía mal, con un sueño de perro, despertándome a media noche para mirar asustado los vidrios de la ventana y ver si ya era de día, mas cuando la luna cortaba de barrote del ventanillo, cerraba los ojos, diciéndome: falta mucho tiempo. Más tarde me despertaba otra vez, al sentir el canto de los gallos. La luna ya no estaba allí, pero una claridad azulada entraba por los cristales, y entonces yo me tapaba la cabeza con las sábanas para no mirarla, aunque sabía que estaba allí... aunque sabía que no había fuerza humana que pudiera echarla a esa claridad. Y cuando al fin me había dormido para mucho tiempo, una mano me sacudía la cabeza en la almohada. Era él que me decía con voz áspera: «Vamos... es hora». Y mientras yo me vestía lentamente, sentía que en el patio ese hombre movía la silla. «Vamos», me gritaba otra vez, y yo, hipnotizado, iba en línea en línea recta hacia él: quería hablar, pero eso era imposible ante su espantosa mirada. Caía su mano sobre mi hombro obligándome a arrodillarme, yo apoyaba el pecho en el asiento de la silla, tomaba mi cabeza entre sus rodillas y, de pronto, crueles latigazos me cruzaban las nalgas. Cuando me soltaba, corría llorando a mi cuarto. Una vergüenza enorme me hundía el alma en las tinieblas. Porque las tinieblas existen aunque usted no lo crea.
 
 Elsa miraba sobresaltada a su esposo. El capitán, de pie, cruzados los brazos, escu­chaba aburrido. Erdosain sonreía con vaguedad. Continuó:
 
--Yo sabía que a la mayoría de los chicos los padres no les pegaban y en la escuela, cuando les oía hablar de sus casas, me paralizaba una angustia tan atroz que si estábamos en clase y el maestro me llamaba, yo lo miraba atontado, sin darme cuenta del sentido de sus preguntas, hasta que un día me gritó: «¿Pero usted, Erdosain, es un imbécil que no me oye?» Toda la clase se echó a reír, y desde ese día me llamaron Erdosain «el imbécil». Y yo, más triste, sintiéndome más ofendido que nunca, callaba por temor a los latigazos de mi padre,
-
-sonriendo a los que me insultaban... pero tímidamente. ¿Se da cuenta, capitán? Lo insultan a usted... y usted todavía sonríe tímidamente, como si le hicieran un favor al injuriarlo.
+–Yo sabía que a la mayoría de los chicos los padres no les pegaban y en la escuela, cuando les oía hablar de sus casas, me paralizaba una angustia tan atroz que si estábamos en clase y el maestro me llamaba, yo lo miraba atontado, sin darme cuenta del sentido de sus preguntas, hasta que un día me gritó: «¿Pero usted, Erdosain, es un imbécil que no me oye?» Toda la clase se echó a reír, y desde ese día me llamaron Erdosain «el imbécil». Y yo, más triste, sintiéndome más ofendido que nunca, callaba por temor a los latigazos de mi padre, sonriendo a los que me insultaban... pero tímidamente. ¿Se da cuenta, capitán? Lo insultan a usted... y usted todavía sonríe tímidamente, como si le hicieran un favor al injuriarlo.
 
 El intruso frunció el ceño.
 
--Más tarde -permítame, capitán-, más tarde me llamaron muchas veces «el imbécil». Entonces súbitamente el alma se me recogía a lo largo de los nervios, y esa sensación de que el alma se escondía avergonzada dentro de mi misma carne, me aniquilaba todo coraje; sin­tiendo que me hundía cada vez más y mirando a los ojos al que me injuriaba, en vez de tumbarlo de una cachetada, me decía: ¿Se dará cuenta este hombre hasta que punto me humi­lla? Luego me iba; comprendía que los otros no hacían más que terminar lo que había comen­zado mi padre.
+–Más tarde –permítame, capitán–, más tarde me llamaron muchas veces «el imbécil». Entonces súbitamente el alma se me recogía a lo largo de los nervios, y esa sensación de que el alma se escondía avergonzada dentro de mi misma carne, me aniquilaba todo coraje; sin­tiendo que me hundía cada vez más y mirando a los ojos al que me injuriaba, en vez de tumbarlo de una cachetada, me decía: ¿Se dará cuenta este hombre hasta qué punto me humi­lla? Luego me iba; comprendía que los otros no hacían más que terminar lo que había comen­zado mi padre.
 
--Y ahora -repuso el capitán- ¿yo también lo hundo?
+–Y ahora –repuso el capitán– ¿yo también lo hundo?
 
--No, hombre, usted no. Naturalmente, he sufrido tanto, que ahora el coraje está en mi encogido, escondido. Yo soy mi espectador y me pregunto: ¿Cuándo saltará mi coraje? Y ése es el acontecimiento que espero. Algún día algo monstruosamente estallará en mí y yo me convertiré en otro hombre. Entonces, si usted vive, iré a buscarle y le escupiré en la cara.
+–No, hombre, usted no. Naturalmente, he sufrido tanto, que ahora el coraje está en mí encogido, escondido. Yo soy mi espectador y me pregunto: ¿Cuándo saltará mi coraje? Y ése es el acontecimiento que espero. Algún día algo monstruosamente estallará en mí y yo me convertiré en otro hombre. Entonces, si usted vive, iré a buscarle y le escupiré en la cara.
 
 El intruso lo miró sereno.
 
--Pero no por odio, sino para jugar con mi coraje, que me parecerá la cosa más nueva del mundo... Ahora, puede usted retirarse.
+–Pero no por odio, sino para jugar con mi coraje, que me parecerá la cosa más nueva del mundo... Ahora, puede usted retirarse.
 
 El intruso vaciló un instante. La mirada de Erdosain, intensamente agrandada, esta­ba fija en él. Tomó la valija y salió.
 
 Elsa se detuvo temblorosa ante su esposo.
 
--Bueno, me voy, Remo... era necesario que esto terminara así.
+–Bueno, me voy, Remo... era necesario que esto terminara así.
 
--Pero, ¿tú?... ¿tú?...
+–Pero, ¿tú?... ¿tú?...
 
--¿Y qué querías que hiciese?
+–¿Y qué querías que hiciese?
 
--No sé.
+–No sé.
 
--¿Y entonces? Quédate tranquilo, te pido. Ya te dejé la ropa preparada. Cambiate el cuello. Siempre le haces pasar vergüenza a una.
+–¿Y entonces? Quédate tranquilo, te pido. Ya te dejé la ropa preparada. Cambiate el cuello. Siempre le hacés pasar vergüenza a una.
 
--Pero tú, Elsa... ¿tú? ¿Y nuestros proyectos?
+–Pero tú, Elsa... ¿tú? ¿Y nuestros proyectos?
 
--Ilusiones, Remo... esplendores.
+–Ilusiones, Remo... esplendores.
 
--Sí, esplendores... pero ¿dónde aprendiste esa palabra tan linda? Esplendores.
+–Sí, esplendores... pero ¿dónde aprendiste esa palabra tan linda? Esplendores.
 
--No sé.
+–No sé.
 
--¿Y nuestra vida quedará siempre deshecha?
+–¿Y nuestra vida quedará siempre deshecha?
 
--¿Qué querés? Sin embargo yo fui buena. Después te tomé odio... pero ¿por qué no fuiste también igual?...
+–¿Qué querés? Sin embargo yo fui buena. Después te tomé odio... pero ¿por qué no fuiste también igual?...
 
--¡Ah!,sí... igual... igual...
+–¡Ah!,sí... igual... igual...
 
 Lo aturdía la pena como un gran día de sol en el trópico. Se le caían los párpados. Hubiera querido dormir. El sentido de las palabras se hundía en su entendimiento con la lentitud de una piedra en un agua demasiado espesa. Cuando la palabra tocaba en el fondo de su conciencia, fuerzas oscuras retorcían su angustia. Y durante un instante, en el fondo de su pecho, quedaban flotando y estremecidas como en el fangal de un charco, sus hierbajos de sufrimiento. Ella continuó con la voz apaciguada por una resignación interior:
 
--Ahora es inútil... ahora yo me voy. ¿Por qué no fuiste bueno vos? ¿Por qué no trabajaste?
+–Ahora es inútil... ahora yo me voy. ¿Por qué no fuiste bueno vos? ¿Por qué no trabajaste?
 
 Erdosain tuvo la certidumbre como él, y una piedad inmensa lo hizo caer al borde de la silla, aplastada la cabeza sobre el brazo estirado en la mesa.
 
--¿Así que te vas? ¿De veras que te vas?
+–¿Así que te vas? ¿De veras que te vas?
 
--Sí, quiero ver si nuestra vida mejora, ¿sabes? Mira mis manos -y desenguantando la diestra la presentó magullada por los fríos, mordida por las lejías, picoteada por las agujas de
-
-la costura, oscurecida por el hollín de las cacerolas.
+–Sí, quiero ver si nuestra vida mejora, ¿sabés? Mirá mis manos –y desenguantando la diestra la presentó magullada por los fríos, mordida por las lejías, picoteada por las agujas de la costura, oscurecida por el hollín de las cacerolas.
 
 Erdosain se levantó, envarado por una alucinación.
 
-Veía a su desdichada esposa en los tumultos monstruosos de las ciudades de portland y de hierro, cruzando diagonales oscuras a la oblicua sobra de los rascacielos bajo una ame­nazadora red de negros cables de alta tensión. Pasaba una multitud de hombres de negocios protegidos por paraguas. Su carita estaba más pálida que nunca, pero ella lo recordaba mien­tras el aliento de los desconocidos se cortaba en su perfil.
+Veía a su desdichada esposa en los tumultos monstruosos de las ciudades de portland y de hierro, cruzando diagonales oscuras a la oblicua sombra de los rascacielos bajo una ame­nazadora red de negros cables de alta tensión. Pasaba una multitud de hombres de negocios protegidos por paraguas. Su carita estaba más pálida que nunca, pero ella lo recordaba mien­tras el aliento de los desconocidos se cortaba en su perfil.
 
-«-¿Dónde estará mi muchachito?»
+«–¿Dónde estará mi muchachito?»
 
 Erdosain interrumpió su proyección de futuro:
 
--Elsa... ya sabes... vení cuando quieras... podes venir... pero decí la verdad, ¿me quisiste alguna vez?
+–Elsa... ya sabés... vení cuando quieras... podés venir... pero decí la verdad, ¿me quisiste alguna vez?
 
 Despaciosamente levantó ella los párpados. Sus pupilas se agrandaron. La voz llena­ba el cuarto de calidez humana. A Erdosain le parecía vivir ahora.
 
--Siempre te quise... ahora también te quiero... nunca, ¿por qué nunca hablaste como esta noche? Siento que te voy a querer toda la vida... que el otro a tu lado es la sombra de un hombre...
+–Siempre te quise... ahora también te quiero... nunca, ¿por qué nunca hablaste como esta noche? Siento que te voy a querer toda la vida... que el otro a tu lado es la sombra de un hombre...
 
--Alma, mi pobre alma... qué vida la nuestra... qué vida...
+–Alma, mi pobre alma... qué vida la nuestra... qué vida...
 
 Un rizo de sonrisa encrespó dolorosamente los labios de ella. Elsa lo miró ardientemente un instante. Luego, con la voz seria de promesas:
 
--Mira... espérame. Si la vida es como siempre me dijiste, yo vuelvo, ¿sabes?, y entonces, si vos querés, nos matamos juntos... ¿Estás contento?
+–Mirá... esperame. Si la vida es como siempre me dijiste, yo vuelvo, ¿sabés?, y entonces, si vos querés, nos matamos juntos... ¿Estás contento?
 
 Una ola de sangre subió hasta las sienes del hombre.
 
--Alma, qué buena sos, alma... dame esa mano -y mientras ella, aun sobrecogida, sonreía con timidez, Erdosain se la besó-. ¿No te enojas, alma?
+–Alma, qué buena sos, alma... dame esa mano –y mientras ella, aun sobrecogida, sonreía con timidez, Erdosain se la besó–. ¿No te enojás, alma?
 
 Ella enderezó la cabeza grave de dicha.
 
--Mirá Remo... yo voy a venir, ¿sabes?, y si es cierto lo que decís de la vida... sí, yo vengo... voy a venir.
+–Mirá Remo... yo voy a venir, ¿sabés?, y si es cierto lo que decís de la vida... sí, yo vengo... voy a venir.
 
--¿Vas a venir?
+–¿Vas a venir?
 
--Con lo que tenga.
+–Con lo que tenga.
 
--¿Aunque seas rica?
+–¿Aunque seas rica?
 
--Aunque tenga todos los millones de la tierra, vengo. ¡Te lo juro!
+–Aunque tenga todos los millones de la tierra, vengo. ¡Te lo juro!
 
--¡Alma, pobre alma! ¡Qué alma la tuya! Sin embargo, vos no me conociste... no importa... ¡ah, nuestra vida!
+–¡Alma, pobre alma! ¡Qué alma la tuya! Sin embargo, vos no me conociste... no importa... ¡ah, nuestra vida!
 
--No importa. Estoy contenta. ¿Te das cuenta de tu sorpresa, Remo? Estás sólito, de noche. Estás solo... de pronto, cric... la puerta se abre... y soy yo... ¡yo que he venido!
+–No importa. Estoy contenta. ¿Te das cuenta de tu sorpresa, Remo? Estás solito, de noche. Estás solo... de pronto, cric... la puerta se abre... y soy yo... ¡yo que he venido!
 
 Estás con un traje de baile... zapatos blancos y tenes un collar de perlas.
 
--Y vine sola, a pie por las calles oscuras, buscándote... pero vos no me ves, estás solo... la cabeza...
+–Y vine sola, a pie por las calles oscuras, buscándote... pero vos no me ves, estás solo... la cabeza...
 
--Decí... habla... habla...
+–Decí... hablá... hablá...
 
--La cabeza apoyada en la mano y el codo en la mesa... me miras... y de pronto...
+–La cabeza apoyada en la mano y el codo en la mesa... me mirás... y de pronto...
 
--Te reconozco y te digo: Elsa, ¿sos vos, Elsa?
+–Te reconozco y te digo: Elsa, ¿sos vos, Elsa?
 
--Y yo te contesto: Remo, yo vine, ¿te acordás de esa noche? Esa noche es esta noche y afuera sopla el gran viento y nosotros no tenemos frío ni pena. ¿Estás contento, Remo?
+–Y yo te contesto: Remo, yo vine, ¿te acordás de esa noche? Esa noche es esta noche y afuera sopla el gran viento y nosotros no tenemos frío ni pena. ¿Estás contento, Remo?
 
--Sí, te juro que estoy contento.
+–Sí, te juro que estoy contento.
 
--Bueno, me voy.
+–Bueno, me voy.
 
--¿Te vas?
+–¿Te vas?
 
--Sí...
+–Sí...
 
 El semblante del hombre se deformó en la súbita pena.
 
--Bueno, ándate.
+–Bueno, ándate.
 
--Hasta pronto, mi esposo.
+–Hasta pronto, mi esposo.
 
--¿Qué dijiste?
+–¿Qué dijiste?
 
--Te digo esto, Remo. Espérame. Aunque tenga todos los millones del mundo, yo vuelvo.
+–Te digo esto, Remo. Esperame. Aunque tenga todos los millones del mundo, yo vuelvo.
 
--Bueno... entonces adiós... pero dame un beso.
+–Bueno... entonces adiós... pero dame un beso.
 
--No, cuando vuelva... adiós, mi esposo.
+–No, cuando vuelva... adiós, mi esposo.
 
 De pronto, Erdosain lanzado por un espasmo sin nombre, la cogió brutalmente de las manos por los pulsos.
 
--Decíme: ¿te acostaste con él? -Soltame, Remo... yo no creía que vos... -Confesa, ¿te acostaste o no? -No.
+–Decime: ¿te acostaste con él? 
+
+–Soltame, Remo... yo no creía que vos... 
+
+–Confesá, ¿te acostaste o no? 
+
+–No.
 
 En el marco de la puerta se detuvo el capitán. Una flojedad inmensa relajó los ner­vios de sus dedos. Erdosain sintió que caía y ya no vio más.
 
@@ -1231,17 +1217,15 @@ En el marco de la puerta se detuvo el capitán. Una flojedad inmensa relajó los
 
 Nunca tuvo conciencia de cómo se arrastró hasta su cama.
 
-El tiempo dejó de existir para Erdosain. Cerró los ojos obedeciendo a la necesidad de dormir que reclamaban sus entrañas doloridas. De tener fuerzas se hubiera arrojado a un pozo. Borbotones de desesperación se apelotonaban en su garganta asfixiándolo, y los ojos se le volvieron más sensibles para la oscuridad que una llaga a la sal. A instantes rechinaba los dientes para amortiguar el crujir de los nervios enrigecidos dentro de su carne que se abando­naba, con flojedad de esponja, a las olas de tinieblas que deyectaban su cerebro.
+El tiempo dejó de existir para Erdosain. Cerró los ojos obedeciendo a la necesidad de dormir que reclamaban sus entrañas doloridas. De tener fuerzas se hubiera arrojado a un pozo. Borbotones de desesperación se apelotonaban en su garganta asfixiándolo, y los ojos se le volvieron más sensibles para la oscuridad que una llaga a la sal. A instantes rechinaba los dientes para amortiguar el crujir de los nervios enrojecidos dentro de su carne que se abando­naba, con flojedad de esponja, a las olas de tinieblas que deyectaban su cerebro.
 
 Tenía la sensación de caer en un agujero sin fondo y apretaba los párpados cerrados. No terminaba de descender, ¡quién sabe cuántas leguas de longitud invisible tenía su cuerpo físico, que no acababa de detener el hundimiento de su conciencia amontonada ahora en un erizamiento de desesperación! De sus párpados caían sucesivas capas de oscuridad más den­sa.
 
-Su centro de dolor se debatía inútilmente. No encontraba en su alma una sola hendi­dura por donde escapar. Erdosain encerraba todo el sufrimiento del mundo, el dolor de la negación del mundo. ¿En qué parte de la tierra podía encontrarse un hombre que tuviera la piel erizada de más pliegues de amargura? Sentía que no era ya un hombre, sino una llaga cubierta de piel, que se pasmaba y gritaba a cada latido de sus venas. Y sin embargo, vivía. Vivía simultáneamente en el alejamiento y en la espantosa proximidad de su cuerpo. El ya no era ya un organismo envasando sufrimientos, sino algo más inhumano... quizá eso... un mons­truo enroscado en sí mismo en el negro vientre de la pieza. Cada capa de oscuridad que descendía de sus párpados era un tejido placentario que lo aislaba más y más del universo de los hombres. Los muros crecían, se elevaban sus hiladas de ladrillos, y nuevas cataratas de tinieblas caían a ese cubo donde él yacía enroscado y palpitante como un caracol en una profundidad oceánica. No podía reconocerse... dudaba que él fuera Augusto Remo Erdosain. Se apretaba la frente entre la yema de los dedos, y la carne de su mano le parecía extraña y no reconocía la carne de su frente, como si estuviera fabricado su cuerpo de dos substancias
-
-distintas. ¿Quién sabe lo que ya había muerto en él? Sólo perduraba para su sensibilidad una conciencia forastera a lo que le había ocurrido, un alma que no tendría el largo de la hoja de una espada y que vibraba como una lamprea en el agua de su vida enturbiada. Hasta la conciencia de ser, en él no ocupaba más de un centímetro cuadrado de sensibilidad. Sí, todo su cuerpo sólo vivía, estaba en contacto con la tierra, por un centímetro cuadrado de sensibi­lidad. El resto se desvanecía en la oscuridad. Sí, él era un centímetro cuadrado de hombre, un centímetro cuadrado de existencia prolongando con su superficie sensible, la incoherente vida de un fantasma. Lo demás había muerto en él, se había confundido con la placenta de tinieblas que blindaba su realidad atroz.
+Su centro de dolor se debatía inútilmente. No encontraba en su alma una sola hendi­dura por donde escapar. Erdosain encerraba todo el sufrimiento del mundo, el dolor de la negación del mundo. ¿En qué parte de la tierra podía encontrarse un hombre que tuviera la piel erizada de más pliegues de amargura? Sentía que no era ya un hombre, sino una llaga cubierta de piel, que se pasmaba y gritaba a cada latido de sus venas. Y sin embargo, vivía. Vivía simultáneamente en el alejamiento y en la espantosa proximidad de su cuerpo. Él ya no era ya un organismo envasando sufrimientos, sino algo más inhumano... quizá eso... un mons­truo enroscado en sí mismo en el negro vientre de la pieza. Cada capa de oscuridad que descendía de sus párpados era un tejido placentario que lo aislaba más y más del universo de los hombres. Los muros crecían, se elevaban sus hiladas de ladrillos, y nuevas cataratas de tinieblas caían a ese cubo donde él yacía enroscado y palpitante como un caracol en una profundidad oceánica. No podía reconocerse... dudaba que él fuera Augusto Remo Erdosain. Se apretaba la frente entre la yema de los dedos, y la carne de su mano le parecía extraña y no reconocía la carne de su frente, como si estuviera fabricado su cuerpo de dos substancias distintas. ¿Quién sabe lo que ya había muerto en él? Sólo perduraba para su sensibilidad una conciencia forastera a lo que le había ocurrido, un alma que no tendría el largo de la hoja de una espada y que vibraba como una lamprea en el agua de su vida enturbiada. Hasta la conciencia de ser en él no ocupaba más de un centímetro cuadrado de sensibilidad. Sí, todo su cuerpo sólo vivía, estaba en contacto con la tierra, por un centímetro cuadrado de sensibi­lidad. El resto se desvanecía en la oscuridad. Sí, él era un centímetro cuadrado de hombre, un centímetro cuadrado de existencia prolongando con su superficie sensible, la incoherente vida de un fantasma. Lo demás había muerto en él, se había confundido con la placenta de tinieblas que blindaba su realidad atroz.
 
 Cada vez más fuerte se hacía en él la revelación de que estaba en el fondo de un cubo de portland. ¡Sensación de otro mundo! Un sol invisible iluminaba para siempre los muros, de un anaranjado color de tempestad. El ala de un ave solitaria soslayaba lo celeste sobre el rectángulo de los muros, pero él estaría para siempre en el fondo de aquel cubo taciturno, iluminado por un anaranjado sol de tempestad.
 
-Luego, la capacidad de su vida quedó reducida a aquel centímetro cuadrado de sen­sibilidad. Hasta se le hacía «visible» el latido de su corazón, y era inútil querer rechazar la espantosa figura que lo lastraba en el fondo de aquel abismo, un momento negro y otros anaranjado. Con que aflojara un poquito tan sólo su voluntad, la realidad que contenía hubie­ra gritado en sus oídos. Erdosain no quería y quería mirar... pero era inútil... su esposa estaba allí, en el fondo de una habitación tapizada de azul. El capitán se movía en un rincón. El sabía, aunque nadie se lo había dicho, que era un dormitorio diminuto, de forma hexagonal y ocupado casi enteramente por una cama ancha y baja. No quería mirarla a Elsa... no... no... quería, pero si le hubieran amenazado de muerte no por eso hubiera dejado de estar con la mirada fija en el hombre que se desnudaba ante ella... ante su legítima esposa que ahora no estaba con él... sino con otro. Más fuerte que su miedo fue su necesidad de más terror, de más sufrimiento, y de pronto, ella, que se cubría los ojos con los dedos, corría hacia el hombre desnudo, de piernas tiesas, se apretaba contra él y ya no rehuía la cárdena virilidad erguida en el fondo azul.
+Luego, la capacidad de su vida quedó reducida a aquel centímetro cuadrado de sen­sibilidad. Hasta se le hacía «visible» el latido de su corazón, y era inútil querer rechazar la espantosa figura que lo lastraba en el fondo de aquel abismo, un momento negro y otros anaranjado. Con que aflojara un poquito tan sólo su voluntad, la realidad que contenía hubie­ra gritado en sus oídos. Erdosain no quería y quería mirar... pero era inútil... su esposa estaba allí, en el fondo de una habitación tapizada de azul. El capitán se movía en un rincón. Él sabía, aunque nadie se lo había dicho, que era un dormitorio diminuto, de forma hexagonal y ocupado casi enteramente por una cama ancha y baja. No quería mirarla a Elsa... no... no... quería, pero si le hubieran amenazado de muerte no por eso hubiera dejado de estar con la mirada fija en el hombre que se desnudaba ante ella... ante su legítima esposa que ahora no estaba con él... sino con otro. Más fuerte que su miedo fue su necesidad de más terror, de más sufrimiento, y de pronto, ella, que se cubría los ojos con los dedos, corría hacia el hombre desnudo, de piernas tiesas, se apretaba contra él y ya no rehuía la cárdena virilidad erguida en el fondo azul.
 
 Erdosain se sintió aplanado en una perfección de espanto. Si lo hubieran pasado por entre los rodillos de un laminador, más plana no podría ser su vida. ¿No quedaban así los sapos que sobre la huella trincaba la rueda de la carreta, aplastados y ardientes? Pero no quería mirar, tan no quería que ahora veía con nitidez cómo Elsa se apoyaba sobre el cuadra­do pecho velludo del hombre, mientras que las manos de él recogían las mandíbulas de la mujer para levantar el rostro hacia su boca.
 
@@ -1249,11 +1233,9 @@ Y de pronto Elsa exclamaba: «Yo también, mi querido... yo también». Su sembl
 
 Inútilmente Elsa... sí, Elsa, su legítima esposa, trataba con la mano pequeña de abar­car toda la virilidad en una caricia. El hombre, bajo el aullido de su deseo, se apretaba las sienes, se cubría los ojos con el antebrazo; pero ella inclinada sobre él, le clavaba este hierro candente en los oídos: «¡Sos más lindo que mi esposo! ¡Qué lindo que sos, Dios mío!».
 
-Si lentamente le hubieran torcido la cabeza sobre el cuello para tornillar en su alma, profundamente, esa visión atroz, no podría sufrir más. Padecía tanto que de interrumpirse ese dolor, su espíritu estallaría como un shrapnell. ¿Cómo es que el alma puede soportar tanto dolor? Y sin embargo quería sufrir más. Que encima de un tajo le partieran el dorso con un hacha en varias partes... Y si en cuatro trozos lo hubieran arrojado a un cajón de basura hubiera continuado sufriendo. No había un centímetro cuadrado en su cuerpo que no sopor-
+Si lentamente le hubieran torcido la cabeza sobre el cuello para tornillar en su alma, profundamente, esa visión atroz, no podría sufrir más. Padecía tanto que de interrumpirse ese dolor, su espíritu estallaría como un shrapnell. ¿Cómo es que el alma puede soportar tanto dolor? Y sin embargo quería sufrir más. Que encima de un tajo le partieran el dorso con un hacha en varias partes... Y si en cuatro trozos lo hubieran arrojado a un cajón de basura hubiera continuado sufriendo. No había un centímetro cuadrado en su cuerpo que no soportara esa altísima presión de angustia.
 
-tara esa altísima presión de angustia.
-
-Todas las cuerdas se habían roto bajo la tensión del espantoso torno, y repentinamen­te una sensación de reposo equilibrio sus miembros.
+Todas las cuerdas se habían roto bajo la tensión del espantoso torno, y repentinamen­te una sensación de reposo equilibró sus miembros.
 
 Ya no deseaba nada. Su vida corría silenciosamente cuesta abajo, como un lago después del quebrantamiento de su dique, y, sin dormir, pero con los párpados cerrados, el desvanecimiento lúcido era más anestésico para su dolor que un sueño de cloroformo.
 
@@ -1261,11 +1243,11 @@ Notablemente latía su corazón. Con dificultad movió la cabeza para separar el
 
 Elsa estaba tan lejos de su memoria que en esa hipnosis transitoria le parecía mentira haberla conocido. Quién sabe si existía físicamente. Antes podía verla, ahora tenía que hacer un gran esfuerzo para reconocerla... y apenas la reconocía. La verdad es que ella no era ella ni él era él. Ahora su vida corría silenciosamente cuesta abajo, se sentía en un retroceso de años, el niño que miraba un árbol verde sombreando el desaparecer continuo de un río entre algunas piedras con manchas rojas. El mismo, era una cascada de carne en las oscuridades. ¡Vaya a saber cuándo terminaría de desangrarse! Y sólo era notable el cerrarse y entreabrirse de su corazón que como un ojo enorme abría su párpado soñoliento para reconocer la oscuri­dad. El foco eléctrico de la mitad de cuadra filtraba por una hendidura un ramalazo de plata que caía sobre el tul del mosquitero. Su sensibilidad se recobraba dolorosamente.
 
-El era Erdosain. Se reconocía ahora. Arqueaba con un gran esfuerzo la espalda. Por debajo de la puerta que cerraba la entrada al comedor se distinguía una franja amarilla. Se había olvidado de apagar la luz. El debía... ¡ah, no!, no, Elsa se ha ido... él debe seiscientos pesos con siete centavos a la Limited Azucarer Company... pero no, ya no los debe, si tiene un cheque...
+Él era Erdosain. Se reconocía ahora. Arqueaba con un gran esfuerzo la espalda. Por debajo de la puerta que cerraba la entrada al comedor se distinguía una franja amarilla. Se había olvidado de apagar la luz. Él debía... ¡ah, no!, no, Elsa se ha ido... él debe seiscientos pesos con siete centavos a la Limited Azucarer Company... pero no, ya no los debe, si tiene un cheque...
 
-¡ Ah, la realidad, la realidad!
+¡Ah, la realidad, la realidad!
 
-El oblicuo paralelogramo de luz que llegaba desde la calle a platear el tul del mos­quitero, era la noción de que vivía como antes, como ayer, como hace diez años.
+El oblicuo paralelogramo de luz que llegaba desde la calle a platear el tul del mos­quitero era la noción de que vivía como antes, como ayer, como hace diez años.
 
 No quería ver esa raya de luz, como cuando era pequeño, no quería «ver esa claridad que estaba allí, aunque sabía que no había fuerza humana que pudiera espantar esa claridad». Sí, semejante a cuando su padre le decía que al otro día le iba a pegar. No era lo mismo ahora. Aquella otra claridad era azulada, ésta de plata, mas tan estridente y anunciadora de lo verda­dero como la luz antigua. El sudor le humedecía las sienes y el cerco de cabellos. Elsa se había ido y ¿no vendría más? ¿Qué diría Barsut?
 
@@ -1276,11 +1258,11 @@ De pronto alguien se detuvo frente a la puerta de calle. Erdosain comprendió qu
 
 Enronquecida la voz, Erdosain le gritó:
 
--Entra: ¿qué haces que no entras?
+–Entra: ¿qué haces que no entrás?
 
 Cargando el cuerpo sobre los talones entró Barsut.
 
--Ahora voy -le gritó Remo mientras el otro entraba al comedor.
+–Ahora voy –le gritó Remo mientras el otro entraba al comedor.
 
 Y cuando entró, ya Barsut se había sentado, cruzándose de piernas, dando, como de costumbre, la espalda a la puerta y el perfil en dirección al ángulo sudeste de la pieza.
 
