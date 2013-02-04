@@ -1258,7 +1258,7 @@ De pronto alguien se detuvo frente a la puerta de calle. Erdosain comprendió qu
 
 Enronquecida la voz, Erdosain le gritó:
 
-–Entra: ¿qué haces que no entrás?
+–Entrá: ¿qué hacés que no entrás?
 
 Cargando el cuerpo sobre los talones entró Barsut.
 
@@ -1266,9 +1266,9 @@ Cargando el cuerpo sobre los talones entró Barsut.
 
 Y cuando entró, ya Barsut se había sentado, cruzándose de piernas, dando, como de costumbre, la espalda a la puerta y el perfil en dirección al ángulo sudeste de la pieza.
 
--¿Qué haces?
+–¿Qué hacés?
 
--¿Cómo te va?
+–¿Cómo te va?
 
 Cargaba el codo en la orilla de la mesa, pues apoyaba la mejilla en la barba y la luz ponía una rojidez de cobre en la blanca carnosidad de la mano. Bajo las cejas, alargadas hacia las sienes, sus ojos verdes atemperaban la dura vidriosidad en una temperatura de pregunta.
 
@@ -1276,41 +1276,41 @@ Y Erdosain distinguía su semblante como a través de una neblina de luces titil
 
 Torpe el timbre de voz, el otro preguntó:
 
--¿Y Elsa?
+–¿Y Elsa?
 
 Erdosain recobró la lucidez de su entendimiento.
 
--Salió.
+–Salió.
 
--Ah...
+–Ah...
 
 Callaron y Erdosain se quedó contemplando el ángulo recto que formaba la manga gris del saco en la blanca orilla de la mesa, y la mejilla que iluminaba la lámpara con un rojo de cobre hasta el dorso de la nariz, mientras que la otra mitad del rostro permanecía, desde la raíz de los cabellos hasta el hoyuelo del mentón, en una oscuridad donde la ojera ahondaba un cuévano de sombra. Barsut movía lentamente una pierna cruzada sobre otra.
 
--¡Ah! -escuchó Erdosain y preguntó-: ¿Qué decís?
+–¡Ah! –escuchó Erdosain y preguntó–: ¿Qué decís?
 
 Es que Erdosain había escuchado aquel «ah» pronunciado unos segundos antes, re­cién ahora.
 
--¿Salió Elsa?...
+–¿Salió Elsa?...
 
 Barsut enderezó la cabeza, sus cejas se levantaron para dejar entrar más luz a los párpados, y con los labios ligeramente entreabiertos, sopló:
 
--¿Se fue?
+–¿Se fue?
 
 Erdosain arrugó el ceño, examinó al soslayo los zapatos del otro, y entrecerrando los párpados, espiando con esa mirada filtrada a través de las pestañas la angustia de Barsut, dejó caer lentamente:
 
--Sí... se... fue... con... un... hombre...
+–Sí... se... fue... con... un... hombre...
 
 Y guiñando el párpado izquierdo como el farmacéutico Ergueta, inclinó la cabeza. Bajo la bronceada raya de sus cejas, fieramente aguardaban sus pupilas.
 
 Erdosain continuó:
 
--¿Ves? Allí está el revólver. Los pude matar y sin embargo no lo hice. Qué curioso animal es el hombre, ¿no?
+–¿Ves? Allí está el revólver. Los pude matar y sin embargo no lo hice. Qué curioso animal es el hombre, ¿no?
 
--¿Y vos te dejaste llevar la mujer en tus barbas?
+–¿Y vos te dejaste llevar la mujer en tus barbas?
 
 En Erdosain el odio antiguo exasperado por la humillación reciente se convertía ahora en un motivo de júbilo cruel y con la voz temblorosa en la garganta, reseca la boca de rencor, exclamó:
 
--¿Qué te interesa a vos?
+–¿Qué te interesa a vos?
 
 Una enorme bofetada lo hizo trastabillar sobre la silla. Más tarde recordó que el brazo de Barsut retrocedía y avanzaba amasando su carne. Se tapó el rostro con las dos manos, quiso escapar a esa mole que siempre avanzaba sobre él como una fuerza desencade­nada de la naturaleza. Su cabeza golpeó sordamente contra el muro y cayó.
 
@@ -1318,73 +1318,69 @@ Cuando volvió en sí Barsut estaba arrodillado a su lado. Notó que tenía el c
 
 Erdosain se levantó trabajosamente y cayó sobre una silla; Barsut estaba tan pálido que dos llamas parecían escapar de sus ojos. De los pómulos a las orejas, haces de músculos trazaban dos arcos temblorosos. Erdosain tenía la sensación de bambolearse en un sueño interminable, pero comprendió cuando el otro lo tomó del brazo, diciéndole:
 
--Mirá, escupime a la cara, si querés, pero déjame hablar. Es necesario que te cuente todo. Sentáte... así, ahí. -Erdosain se había levantado inconscientemente-. Oíme, hacé el favor. Vos ves ¿no? Yo puedo matarte a trompadas... recién se me fue la mano... te juro... si querés te pido perdón de rodillas. Qué querés, soy así. Mirá... ah... ah... si la gente supiera.
+–Mirá, escupime a la cara, si querés, pero déjame hablar. Es necesario que te cuente todo. Sentate... así, ahí –Erdosain se había levantado inconscientemente–. Oíme, hacé el favor. Vos ves ¿no? Yo puedo matarte a trompadas... recién se me fue la mano... te juro... si querés te pido perdón de rodillas. Qué querés, soy así. Mirá... ah... ah... si la gente supiera.
 
 Erdosain escupió sangre. Una franja de temperatura le abrazaba la frente entrándole por las sienes y yéndole a punzar hasta la nuca. La espalda se le encorvó tanto que dejó apoyada la cabeza en la orilla de la mesa. Barsut, al verle así, le preguntó:
 
--¿Querés lavarte la cara? Te va a hacer bien. Espera un momento, no salgas.- Y corrió hacia la cocina, de donde volvió con la palangana llena de agua-. Lávate. Eso te va a hacer bien. ¿Querés que te friccione? Mirá, perdóname, fue un impulso. Vos, también, ¿por qué guiñaste un ojo como burlándote? Lávate, haceme el favor.
+–¿Querés lavarte la cara? Te va a hacer bien. Esperá un momento, no salgas –y corrió hacia la cocina, de donde volvió con la palangana llena de agua–. Lavate. Eso te va a hacer bien. ¿Querés que te friccione? Mirá, perdóname, fue un impulso. Vos, también, ¿por qué guiñaste un ojo como burlándote? Lavate, haceme el favor.
 
 Erdosain, en silencio, se levantó y sumergió varias veces la cara en la palangana. Cuando le faltaba la respiración retiraba el rostro de la superficie del agua. Luego se sentó y el aire le evaporaba la humedad de los cabellos, junto a las sienes. ¡Qué cansado estaba! ¡Ah, si lo viera Elsa! ¡Cómo lo compadecería! Cerró los ojos. Barsut arrimó la silla a su lado y dijo:
 
--Es necesario que te cuente todo. Si no lo hiciera me sentiría un canalla. Ya ves, te hablo tranquilo. Mirá, si no lo crees poneme la mano en el corazón. Te soy sincero. Bueno, yo... yo te... yo te denuncié a la Azucarera... yo fui el que mandó el anónimo.
+–Es necesario que te cuente todo. Si no lo hiciera me sentiría un canalla. Ya ves, te hablo tranquilo. Mirá, si no lo creés poneme la mano en el corazón. Te soy sincero. Bueno, yo... yo te... yo te denuncié a la Azucarera... yo fui el que mandó el anónimo.
 
 Erdosain ni levantó la cabeza. El u otro ¡qué importaba!
 
 Barsut lo miró: esperaba quién sabe qué palabras, y dijo:
 
--¿Por qué no decís nada? Sí, yo te denuncié. ¿Te das cuenta? Yo te denuncié. Quería hacerte meter preso, quedarme con Elsa, humillarla. ¡No te imaginas las noches que he pasa­do pensando que te meterían preso! Vos no tenías de dónde sacar la plata y forzosamente ellos te denunciarían. ¿Pero, por qué no decís nada?
+–¿Por qué no decís nada? Sí, yo te denuncié. ¿Te das cuenta? Yo te denuncié. Quería hacerte meter preso, quedarme con Elsa, humillarla. ¡No te imaginás las noches que he pasa­do pensando que te meterían preso! Vos no tenías de dónde sacar la plata y forzosamente ellos te denunciarían. ¿Pero, por qué no decís nada?
 
 Erdosain levantó los párpados. Barsut estaba allí, sí, era él, y decía todas esas cosas. De los pómulos a las orejas, bajo la piel, el reflejo de los músculos temblaba imperceptible­mente.
 
-Barsut bajó los ojos, apoyó los codos en las rodillas como si se encontrase frente a un fogón, y con voz lenta insistió.:
+Barsut bajó los ojos, apoyó los codos en las rodillas como si se encontrase frente a un fogón, y con voz lenta insistió:
 
--Es necesario que te cuente todo. ¿A quién sino a vos le podría contar todas estas
+–Es necesario que te cuente todo. ¿A quién sino a vos le podría contar todas estas cosas que hacen doler el corazón? Dicen, y es cierto, que el corazón no duele, pero creelo, a momentos me digo: ¿para qué vivir? ¿A dónde va la vida si yo soy así? ¿Te das cuenta? Vos tenés que ver todo lo que he cavilado pensando estas cosas. Mirá, ni debía contártelas. ¿Cómo es eso que uno le hace una canallada a una persona, luego se acerca a ella y le cuenta sus más íntimos secretos, y no siente remordimientos? Yo mismo me he dicho muchas veces: ¿Por qué no siento remordimientos? ¿Qué vida es esta si hacemos una barbaridad y no sentimos nada? ¿Comprendés vos esto? De acuerdo a lo que hemos estudiado en el colegio, un crimen termina por volverlo loco al delincuente, ¿y cómo es que en la realidad vos hacés un crimen y te quedás lo más tranquilo?
 
-cosas que hacen doler el corazón? Dicen, y es cierto, que el corazón no duele, pero créelo, a momentos me digo: ¿para qué vivir? ¿A dónde va la vida si yo soy así? ¿Te das cuenta? Vos tenes que ver todo lo que he cavilado pensando estas cosas. Mirá, ni debía contártelas. ¿Cómo es eso que uno le hace una canallada a una persona, luego se acerca a ella y le cuenta sus más íntimos secretos, y no siente remordimientos? Yo mismo me he dicho muchas veces: ¿Por qué no siento remordimientos? ¿Qué vida es esta si hacemos una barbaridad y no sentimos nada? ¿Comprendes vos esto? De acuerdo a lo que hemos estudiado en el colegio, un crimen termina por volverlo loco al delincuente, ¿y cómo es que en la realidad vos haces un crimen y te quedas lo más tranquilo?
+Erdosain continuaba con la mirada fija en Barsut, ahora la imagen de aquel hombre se depositaba en el fondo de su conciencia. Las fuerzas de su vida ceñían el pálido relieve de una malla tan intensa que el calco que se verificaba en aquellos instantes ya nunca más se borraría.
 
-Erdosain continuaba con la mirada fija en Barsut ahora la imagen de aquel hombre se depositaba en el fondo de su conciencia. Las fuerzas de su vida ceñían el pálido relieve de una malla tan intensa que el calco que se verificaba en aquellos instantes ya nunca más se borraría.
-
--Mirá -continuó Barsut-, yo sabía que me tenías rabia, que de haberme podido matar lo hubieras hecho, y eso me alegraba y entristecía a un tiempo. ¡Cuántas noches me acosté pensando en el modo de secuestrarte! Hasta se me ocurrió mandarte una bomba por correo, o una víbora en una caja de cartón. O pagarle a un chofer para que te atropellara por la calle. Cerraba los ojos y las horas se me pasaban pensando en ustedes. ¿Vos te pensás que la quería a ella? -Erdosain observó más tarde que en la conversación de esa noche Barsut evitó llamar a Elsa por su nombre-. No, no la he querido nunca. Pero me hubiera gustado humillarla ¿sabes? Humillarla porque sí: verte a vos hundido para que ella me pidiera de rodillas que te ayudara. ¿Te das cuenta? Nunca la he querido. Si te denuncié fue por eso, para humillarla a ella que siempre fue tan orgullosa conmigo. Y cuando vos me dijiste que habías defraudado a la Azucarera, una alegría de salvaje me revolvió las entrañas. Y no terminabas de hablar cuando yo me dije: bueno, vamos a ver ahora dónde termina su orgullo.
+–Mirá –continuó Barsut–, yo sabía que me tenías rabia, que de haberme podido matar lo hubieras hecho, y eso me alegraba y entristecía a un tiempo. ¡Cuántas noches me acosté pensando en el modo de secuestrarte! Hasta se me ocurrió mandarte una bomba por correo, o una víbora en una caja de cartón. O pagarle a un chofer para que te atropellara por la calle. Cerraba los ojos y las horas se me pasaban pensando en ustedes. ¿Vos te pensás que la quería a ella? –Erdosain observó más tarde que en la conversación de esa noche Barsut evitó llamar a Elsa por su nombre–. No, no la he querido nunca. Pero me hubiera gustado humillarla ¿sabés? Humillarla porque sí: verte a vos hundido para que ella me pidiera de rodillas que te ayudara. ¿Te das cuenta? Nunca la he querido. Si te denuncié fue por eso, para humillarla a ella que siempre fue tan orgullosa conmigo. Y cuando vos me dijiste que habías defraudado a la Azucarera, una alegría de salvaje me revolvió las entrañas. Y no terminabas de hablar cuando yo me dije: bueno, vamos a ver ahora dónde termina su orgullo.
 
 Erdosain dejó escapar la pregunta:
 
--¿Pero vos la querías?...
+–¿Pero vos la querías?...
 
--No, no la he querido nunca. ¡Si supieras lo que me ha hecho sufrir! ¿Quererla yo a ella, que nunca me dio la mano? Cada vez que me miraba me parecía que me escupía a la cara. ¡Ah, vos fuiste el marido, pero nunca la conociste! ¡Qué sabes vos qué mujer es ella! Mirá, te podría ver morir y no tendría un gesto de lástima. ¿Te das cuenta? Me acuerdo. Cuando la casa Astraldi quebró y ustedes se quedaron en la calle, si ella me hubiera pedido todo lo que yo tenía, se lo hubiera dado. Le hubiera dado toda mi fortuna para que me dijera «gracias». Nada más que gracias. Para que me dijera esa palabra yo me hubiera quedado sin nada. Un día que entablé una conversación me contestó: Remo es suficiente hombre para ganar para nosotros dos. ¡Ah, vos no la conoces! Sería capaz de verte morir sin hacer un gesto. Y yo pensaba. ¡Cuántas cosa, Dios mío, pasan por la cabeza de un hombre! Me tiraba en una cama y me ponía a imaginar cosas...vos habías asesinado a un hombre... era necesario salvarte y entonces ella me venía a pedir que te ayudara y yo, sin decirle una palabra de mis sacrificios, corría de un lado a otro. ¡Qué mujer, Remo! ¡Qué mujer! Me acuerdo de cuando cosía. Me hubiera quedado al lado, ¿sabes? sosteniéndole la costura, y yo sabía que no era feliz con vos. Lo veía en la cara, en su cansancio, en su sonrisa.
+–No, no la he querido nunca. ¡Si supieras lo que me ha hecho sufrir! ¿Quererla yo a ella, que nunca me dio la mano? Cada vez que me miraba me parecía que me escupía a la cara. ¡Ah, vos fuiste el marido, pero nunca la conociste! ¡Qué sabes vos qué mujer es ella! Mirá, te podría ver morir y no tendría un gesto de lástima. ¿Te das cuenta? Me acuerdo. Cuando la casa Astraldi quebró y ustedes se quedaron en la calle, si ella me hubiera pedido todo lo que yo tenía, se lo hubiera dado. Le hubiera dado toda mi fortuna para que me dijera «gracias». Nada más que gracias. Para que me dijera esa palabra yo me hubiera quedado sin nada. Un día que entablé una conversación me contestó: Remo es suficiente hombre para ganar para nosotros dos. ¡Ah, vos no la conocés! Sería capaz de verte morir sin hacer un gesto. Y yo pensaba. ¡Cuántas cosa, Dios mío, pasan por la cabeza de un hombre! Me tiraba en una cama y me ponía a imaginar cosas...vos habías asesinado a un hombre... era necesario salvarte y entonces ella me venía a pedir que te ayudara y yo, sin decirle una palabra de mis sacrificios, corría de un lado a otro. ¡Qué mujer, Remo! ¡Qué mujer! Me acuerdo de cuando cosía. Me hubiera quedado al lado, ¿sabés? sosteniéndole la costura, y yo sabía que no era feliz con vos. Lo veía en la cara, en su cansancio, en su sonrisa.
 
 Erdosain recordó las palabras que Elsa había pronunciado hacía una hora:
 
--No importa... Estoy contenta. ¿Te das cuenta de tu sorpresa, Remo? Estás sólito de noche, estás solo... De pronto, cric... la puerta se abre... y soy yo... yo, que he venido.
+–No importa... Estoy contenta. ¿Te das cuenta de tu sorpresa, Remo? Estás solito de noche, estás solo... De pronto, cric... la puerta se abre... y soy yo... yo, que he venido.
 
 Barsut continuó:
 
--Y claro, yo me preguntaba qué era lo que le hacía soportar la vida a tu lado, al lado de un hombre como vos...
+–Y claro, yo me preguntaba qué era lo que le hacía soportar la vida a tu lado, al lado de un hombre como vos...
 
--Y vine a pie sola por las calles oscuras, buscándote, pero vos no me ves, estás solo, la cabeza...
+–Y vine a pie sola por las calles oscuras, buscándote, pero vos no me ves, estás solo, la cabeza...
 
 Erdosain sentía que las ideas se le atorbellinaban en la superficie del cerebro como un remolino de agua. El cono gigante hundía la espiral hasta la raíz de sus miembros. Torbe­llino cuyo roce suave arrancaba a su alma una ternura dolorida, nueva. ¡Qué buenas las palabras de Elsa, qué extraordinario contenido!
 
--Siempre te quise. Ahora también te quiero... nunca ¿por qué nunca hablaste como esta noche? Siento que te voy a querer toda la vida, que el otro a tu lado es la sombra de un hombre.
+–Siempre te quise. Ahora también te quiero... nunca ¿por qué nunca hablaste como esta noche? Siento que te voy a querer toda la vida, que el otro a tu lado es la sombra de un hombre.
 
 Erdosain tenía ahora la certidumbre de que estas palabras salvaban para siempre su alma, mientras que Barsut amontonaba una envidiosa angustia:
 
--Y yo hubiera querido preguntarle a ella qué es lo que encontraba a tu lado, abrirte el pecho delante de ella y demostrarle hasta cansarla que vos eras un loco, un canalla, un cobar­de... Te juro que digo estas palabras sin rabia.
+–Y yo hubiera querido preguntarle a ella qué es lo que encontraba a tu lado, abrirte el pecho delante de ella y demostrarle hasta cansarla que vos eras un loco, un canalla, un cobar­de... Te juro que digo estas palabras sin rabia.
 
--Lo creo -repuso Erdosain.
+–Lo creo –repuso Erdosain.
 
--Ahora mismo, yo me pregunto, mirándote: ¿Con qué ojos mira una mujer a un hombre? Eso es lo que nunca sabremos. ¿No te parece? Vos para mí eras un desgraciado, al que de un revés se lo saca uno de adelante. Pero para ella, ¿quién eras vos? Ese es el punto oscuro. ¿Lo supiste alguna vez? Decíme francamente: ¿supiste vos en tu corazón qué hombre eras para tu mujer? ¿Qué es lo que ella vio en vos para sufrir tanto a tu lado, y soportarte como lo hizo?
+–Ahora mismo, yo me pregunto, mirándote: ¿Con qué ojos mira una mujer a un hombre? Eso es lo que nunca sabremos. ¿No te parece? Vos para mí eras un desgraciado, al que de un revés se lo saca uno de adelante. Pero para ella, ¿quién eras vos? Ese es el punto oscuro. ¿Lo supiste alguna vez? Decime francamente: ¿supiste vos en tu corazón qué hombre eras para tu mujer? ¿Qué es lo que ella vio en vos para sufrir tanto a tu lado, y soportarte como lo hizo?
 
 ¡Qué gravemente conversaba Barsut! Sus enronquecidas preguntas requerían una contestación. Erdosain lo sentía en sus inmediaciones no como a un hombre, sino precisa­mente como a un doble, un espectro de nariz huesuda y cabello de bronce que de pronto se había convertido en un pedazo de su conciencia, ya que como ésta en otras circunstancias, él ahora le dirigía las mismas preguntas. Sí, era probable que para vivir tranquilo fuera necesa­rio exterminarlo, y la «idea» se reveló fríamente en él.
 
--Semejante a una espada entrando en un bloque de algodón -diría más tarde Erdosain.
+–Semejante a una espada entrando en un bloque de algodón –diría más tarde Erdosain.
 
 Barsut ni remotamente se imaginó que en aquel instante, Remo acababa de conde­narlo a muerte. Explicándome luego las circunstancias de esa concepción, Erdosain me de­cía:
 
-«¿Usted ha visto a un general en un campo de batalla?... Pero para hacerle más accesible mi idea le diré como inventor: Usted busca durante cierto tiempo la solución de un problema. Usted sabe, tiene la seguridad de que la clave, el secreto, está en usted, pero no lo puede conocer, tan cubierto está el secreto de capas de misterio. Y un día, en el momento más inesperado, de pronto el plan, la visión completa de la máquina, aparece ante sus ojos, des­lumbrándolo con su fácil exactitud. ¡Es algo maravilloso! Imagínese un general en un campo de batalla... todo está perdido, y de pronto, clara, precisa, se le aparece una solución que jamás había soñado concebir, y que, sin embargo, tenía allí, al alcance de su mano, en el interior de sí mismo. Yo, en aquel instante, supe que tenía que hacerlo matar a Barsut, y él, frente a mí, amontonando palabras inútiles no se imaginaba que yo, con la boca hinchada, la nariz dolorida, retenía una alegría estupenda, un deslumbramiento semejante al que se expe­rimenta cuando lo que se ha descubierto es fatal como una ley matemática. Quizás existe también una matemática del espíritu cuyas terribles leyes no son tan inviolables como las que rigen las combinaciones de los números y de las líneas. Porque es curioso. Aquella bofetada que aun me hacía sangrar la encía, como el cuño de una prensa hidráulica estampó en mi conciencia las líneas definitivas de un plan de muerte. ¿Se da cuenta? Un plan son tres líneas generales, tres admisibles líneas rectas, nada más. Y en tumulto, se amontonaba mi regocijo
+«¿Usted ha visto a un general en un campo de batalla?... Pero para hacerle más accesible mi idea le diré como inventor: Usted busca durante cierto tiempo la solución de un problema. Usted sabe, tiene la seguridad de que la clave, el secreto, está en usted, pero no lo puede conocer, tan cubierto está el secreto de capas de misterio. Y un día, en el momento más inesperado, de pronto el plan, la visión completa de la máquina, aparece ante sus ojos, des­lumbrándolo con su fácil exactitud. ¡Es algo maravilloso! Imagínese un general en un campo de batalla... todo está perdido, y de pronto, clara, precisa, se le aparece una solución que jamás había soñado concebir, y que, sin embargo, tenía allí, al alcance de su mano, en el interior de sí mismo. Yo, en aquel instante, supe que tenía que hacerlo matar a Barsut, y él, frente a mí, amontonando palabras inútiles no se imaginaba que yo, con la boca hinchada, la nariz dolorida, retenía una alegría estupenda, un deslumbramiento semejante al que se expe­rimenta cuando lo que se ha descubierto es fatal como una ley matemática. Quizás existe también una matemática del espíritu cuyas terribles leyes no son tan inviolables como las que rigen las combinaciones de los números y de las líneas. Porque es curioso. Aquella bofetada que aun me hacía sangrar la encía, como el cuño de una prensa hidráulica estampó en mi conciencia las líneas definitivas de un plan de muerte. ¿Se da cuenta? Un plan son tres líneas generales, tres admisibles líneas rectas, nada más. Y en tumulto, se amontonaba mi regocijo sobre ese relieve en frío cuyas tres sintéticas líneas encerraban esto: secuestrar a Barsut, hacerlo matar y con su dinero fundar la sociedad secreta como deseaba el Astrólogo. ¿Se da cuenta usted? El plan del crimen surgió espontáneamente en mí, mientras que el otro hablaba tristemente de nuestras dos almas condenadas. El plan apareció en mí como si lo hubieran estampado en una plancha de hierro a miles de libras de presión.
 
-sobre ese relieve en frío cuyas tres sintéticas líneas encerraban esto: secuestrar a Barsut, hacerlo matar y con su dinero fundar la sociedad secreta como deseaba el Astrólogo. ¿Se da cuenta usted? El plan del crimen surgió espontáneamente en mí, mientras que el otro hablaba tristemente de nuestras dos almas condenadas. El plan apareció en mí como si lo hubieran estampado en una plancha de hierro a miles de libras de presión.
-
-«¡ Ah! ¿Cómo explicarle? De pronto yo me olvidé de todo retenido por una contem­plación helada, llena de gozo, algo así como la aurora que descubre un trasnochador con­suetudinario que lo alivia de su cansancio en la mañana que sucedió a una noche llena de fatigas. ¿Se da cuenta? Hacerlo asesinar a Barsut por un hombre que imperiosamente necesi­taba dinero para llevar a cabo una idea genial. Y esta nueva aurora que latía en mí estaba tan perfectamente individualizada que muchas veces, más tarde, me he preguntado qué secreto llega a encerrar el alma de un hombre que, sucesivamente, le van mostrando horizontes nue­vos, descascarando sensaciones que para él mismo son un asombro por su origen aparente­mente ilógico».
+«¡Ah! ¿Cómo explicarle? De pronto yo me olvidé de todo retenido por una contem­plación helada, llena de gozo, algo así como la aurora que descubre un trasnochador con­suetudinario que lo alivia de su cansancio en la mañana que sucedió a una noche llena de fatigas. ¿Se da cuenta? Hacerlo asesinar a Barsut por un hombre que imperiosamente necesi­taba dinero para llevar a cabo una idea genial. Y esta nueva aurora que latía en mí estaba tan perfectamente individualizada que muchas veces, más tarde, me he preguntado qué secreto llega a encerrar el alma de un hombre que, sucesivamente, le van mostrando horizontes nue­vos, descascarando sensaciones que para él mismo son un asombro por su origen aparente­mente ilógico».
 
 En el curso de esta historia he olvidado decir que cuando Erdosain se entusiasmaba, giraba en torno de la «idea» eje con palabras numerosas. Necesitaba agotar todas las posibi­lidades de expresión, poseído por ese frenesí lento que a través de las frases le daba a él la conciencia de ser un hombre extraordinario y no un desdichado. Que decía la verdad, no me cabía duda. Lo que muchas veces me confundió fue la pregunta que a mí mismo me hice: ¿de dónde sacaba ese hombre energías para soportar su espectáculo tanto tiempo? No hacía otra cosa que examinarse, que analizar lo que en él ocurría, como si la suma de detalles pudiera darle la certidumbre de que vivía. Insisto. Un muerto que tuviera el poder de conversar no hablaría más que él, para cerciorarse de que en apariencia no estaba muerto.
 
