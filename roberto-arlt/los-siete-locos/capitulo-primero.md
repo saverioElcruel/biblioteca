@@ -1386,90 +1386,86 @@ En el curso de esta historia he olvidado decir que cuando Erdosain se entusiasma
 
 Bersut, sin darse cuenta de todo lo que acababa de ocurrir en el otro, continuó:
 
--¡Ah!, vos no la conociste.., no la conociste nunca. Fíjate, escucha lo que te voy a contar. Una tarde fui a verte, sabía que no estabas, quería encontrarme con ella, verla no más, aunque fuera. Llegué sudado, no sé cuántas cuadras caminé al sol antes de resolverme.
+–¡Ah!, vos no la conociste..., no la conociste nunca. Fijate, escuchá lo que te voy a contar. Una tarde fui a verte, sabía que no estabas, quería encontrarme con ella, verla no más, aunque fuera. Llegué sudado, no sé cuántas cuadras caminé al sol antes de resolverme.
 
--Igual que yo, al sol -pensó Erdosain.
+–Igual que yo, al sol –pensó Erdosain.
 
--Y eso que vos sabes que a mí no me faltaba plata para tomar un automóvil, y aun cuando pregunté por vos, ella, sin moverse del umbral, me contestó:
+–Y eso que vos sabés que a mí no me faltaba plata para tomar un automóvil, y aun cuando pregunté por vos, ella, sin moverse del umbral, me contestó:
 
--Disculpe, no lo hago pasar porque no está mi esposo. ¿Te das cuenta qué perra?
+–Disculpe, no lo hago pasar porque no está mi esposo. ¿Te das cuenta qué perra?
 
 Erdosain pensó:
 
--Todavía hay un tren para Témperley.
+–Todavía hay un tren para Témperley.
 
 Barsut continuó:
 
--Y yo, que te veía tan pobre hombre, me dije: ¿qué le habrá visto Elsa a este infeliz para enamorarse de él?
+–Y yo, que te veía tan pobre hombre, me dije: ¿qué le habrá visto Elsa a este infeliz para enamorarse de él?
 
 Con tranquilísima voz le preguntó Erdosain:
 
--¿Y en la cara se me nota que soy un infeliz?
+–¿Y en la cara se me nota que soy un infeliz?
 
 Barsut levantó la cabeza, extrañado. Durante un momento mantuvo inmóviles las translúcidas pupilas verdosas en su interlocutor. El lienzo de luz que caía sobre él y Erdosain interponía una distancia de ensueño. Y Barsut se comprendía tan fantasma como el otro, porque moviendo penosamente la cabeza, como si repentinamente todos los músculos del cuello se le hubieran enrigecido, contestó:
 
--No, mirándote bien pareces un tipo agarrado por una idea fija... vaya a saber qué.
+–No, mirándote bien pareces un tipo agarrado por una idea fija... vaya a saber qué.
 
 Erdosain repuso:
 
--Sos psicólogo. Naturalmente, yo no sé todavía en qué consiste esa idea fija, pero es curioso, lo que nunca se me ocurrió fue que vos pensaras en quitarme mi mujer... Y la tran­quilidad con que decís esas cosas...
+–Sos psicólogo. Naturalmente, yo no sé todavía en qué consiste esa idea fija, pero es curioso, lo que nunca se me ocurrió fue que vos pensaras en quitarme mi mujer... Y la tran­quilidad con que decís esas cosas...
 
--No me negarás que te soy franco...
+–No me negarás que te soy franco...
 
--No...
+–No...
 
--Además, quería humillarla... no robártela, ¿para qué? Si yo sabía que nunca me querría.
+–Además, quería humillarla... no robártela, ¿para qué? Si yo sabía que nunca me querría.
 
--¿Y en qué lo adivinabas?
+–¿Y en qué lo adivinabas?
 
--Eso es lo que no sé. Porque uno hace ciertas cosas que no se puede explicar. Porque te trataba y vos me tratabas no pudiéndonos «pasar». Venía porque viniendo te hacía sufrir y sufría. Todos los días me decía: No iré más... no iré más... Pero en cuanto llegaba la hora, me ponía nervioso. Era como si me llamaran desde algún lado, y entonces me vestía apurado... venía...
+–Eso es lo que no sé. Porque uno hace ciertas cosas que no se puede explicar. Porque te trataba y vos me tratabas no pudiéndonos «pasar». Venía porque viniendo te hacía sufrir y sufría. Todos los días me decía: No iré más... no iré más... Pero en cuanto llegaba la hora, me ponía nervioso. Era como si me llamaran desde algún lado, y entonces me vestía apurado... venía...
 
 Erdosain de pronto tuvo una idea singular, y dijo:
 
--Hablando de todo un poco... No sé si sabrás que esta mañana me hablaron en la Azucarera del anónimo. Si no rindo cuentas me ponen preso mañana. El único culpable, y creo que no tendrás inconveniente en admitirlo, de que esto pase sos vos, de modo que me tenes que facilitar la plata. ¿De dónde voy a sacar esa cantidad?
+–Hablando de todo un poco... No sé si sabrás que esta mañana me hablaron en la Azucarera del anónimo. Si no rindo cuentas me ponen preso mañana. El único culpable, y creo que no tendrás inconveniente en admitirlo, de que esto pase sos vos, de modo que me tenés que facilitar la plata. ¿De dónde voy a sacar esa cantidad?
 
 Barsut se irguió asombrado.
 
--Pero, ¿cómo? ¿Después que yo resulto cornudo y apaleado, después que Elsa se va y hago una infamia, el que te tiene que dar la plata soy yo? ¿Vos estás loco? ¿Con qué ventaja te voy a dar seiscientos pesos?...
+–Pero, ¿cómo? ¿Después que yo resulto cornudo y apaleado, después que Elsa se va y hago una infamia, el que te tiene que dar la plata soy yo? ¿Vos estás loco? ¿Con qué ventaja te voy a dar seiscientos pesos?...
 
--Con siete centavos...
+–Con siete centavos...
 
 Erdosain se levantó.
 
--¿Esa es tu última palabra?
+–¿Esa es tu última palabra?
 
--Pero, comprendé, ¿cómo yo?...
+–Pero, comprendé, ¿cómo yo?...
 
--Bueno «m'hijo»... Paciencia. Ahora haceme el favor de irte, que quiero dormir.
+–Bueno «m'hijo»... Paciencia. Ahora haceme el favor de irte, que quiero dormir.
 
--¿No querés que salgamos?
+–¿No querés que salgamos?
 
--Estoy cansado. Déjame.
+–Estoy cansado. Dejame.
 
 Barsut vaciló. Luego, levantándose y con el sombrero cogido de un ala, salió torpe­mente de la pieza.
 
 Erdosain escuchó el golpe que hizo la puerta al cerrarse, caviló ceñudo un instante, buscó en su bolsillo una guía de ferrocarriles, miró el horario, luego volvió a lavarse, y ante el espejo se peinó. Tenía el labio amoratado, una mancha roja bordeábale la nariz, así como otra circunvalaba la sien, junto a la entrada del cabello.
 
-Miró en derredor buscando algo, vio el revólver caído, lo recogió y salió. Pero como dejara la luz encendida, volvió y apagó la lámpara. Todo estaba oscuro ahora, como el rastro de una luz brilló ante sus ojos y salió. Por segunda vez en aquel día iba a la casa del Astrólo­go-
+Miró en derredor buscando algo, vio el revólver caído, lo recogió y salió. Pero como dejara la luz encendida, volvió y apagó la lámpara. Todo estaba oscuro ahora, como el rastro de una luz brilló ante sus ojos y salió. Por segunda vez en aquel día iba a la casa del Astrólo­go.
 
 
 ## «Ser» a través de un crimen
 
-Un trozo de andén de la estación de Témperley estaba débilmente iluminado por la luz que salía de una puerta de la oficina de los telegrafistas. Erdosain sentóse en un banco junto a las palancas para los cambios de vías, en la oscuridad. Tenía frío y tal vez fiebre. Además experimentaba la impresión de que la idea criminosa era una continuidad de su cuerpo, como el hombre de tiniebla que pudiera arrojar en la luz. Un disco rojo brillaba al extremo del brazo invisible del semáforo: más allá otros círculos rojos y verdes estaban clavados en la oscuridad, y la curva del riel galvanoplastiado de esas luces sumergía en las tinieblas su redondez azulenca o carminosa. A veces la luz roja o verde, descendía. Luego
-
-todo permanecía quieto, dejando de rechinarlas cadenas en las roldanas y cesando el roce de los alambres en las piedras.
+Un trozo de andén de la estación de Témperley estaba débilmente iluminado por la luz que salía de una puerta de la oficina de los telegrafistas. Erdosain sentóse en un banco junto a las palancas para los cambios de vías, en la oscuridad. Tenía frío y tal vez fiebre. Además experimentaba la impresión de que la idea criminosa era una continuidad de su cuerpo, como el hombre de tiniebla que pudiera arrojar en la luz. Un disco rojo brillaba al extremo del brazo invisible del semáforo: más allá otros círculos rojos y verdes estaban clavados en la oscuridad, y la curva del riel galvanoplastiado de esas luces sumergía en las tinieblas su redondez azulenca o carminosa. A veces la luz roja o verde, descendía. Luego todo permanecía quieto, dejando de rechinar las cadenas en las roldanas y cesando el roce de los alambres en las piedras.
 
 Quedóse amodorrado.
 
--¿Qué hago yo aquí? ¿Por qué me quedo aquí? ¿Es cierto que quiero matarlo? ¿O es que quiero tener la voluntad de sentir el deseo de matarlo? ¿Es necesario eso? Ahora ella estará revolcándose con él. Pero, ¿qué me importa a mí? Antes, cuando la sabía sola en casa, mientras yo estaba en el café, sufría por ella, sufría porque era desdichada a mi lado... aho­ra—claro... ya se habrán dormido, ella con la cabeza sobre el pecho de él. ¡Nombre de Dios! ¿Y ésta es la vida? ¡Estar perdidos, siempre perdidos! ¿Pero yo seré realmente el que soy? ¿O seré otro? ¡La tristeza! ¡vivir con extrañeza! Esto es lo que me pasa. Igual que a él. Cuando está lejos me lo imagino tal cual es, canalla, desdichado. Casi me rompe la nariz. ¡Pero qué formidable! ¡Resulta ahora al final de cuentas que el cornudo y apaleado es él y no yo! ¡Yo!... ¡Realmente, la vida es una bufonada! Y sin embargo, hay algo serio. ¿Por qué me repugna cuando está cerca?
+–¿Qué hago yo aquí? ¿Por qué me quedo aquí? ¿Es cierto que quiero matarlo? ¿O es que quiero tener la voluntad de sentir el deseo de matarlo? ¿Es necesario eso? Ahora ella estará revolcándose con él. Pero, ¿qué me importa a mí? Antes, cuando la sabía sola en casa, mientras yo estaba en el café, sufría por ella, sufría porque era desdichada a mi lado... aho­ra, claro... ya se habrán dormido, ella con la cabeza sobre el pecho de él. ¡Nombre de Dios! ¿Y ésta es la vida? ¡Estar perdidos, siempre perdidos! ¿Pero yo seré realmente el que soy? ¿O seré otro? ¡La tristeza! ¡vivir con extrañeza! Esto es lo que me pasa. Igual que a él. Cuando está lejos me lo imagino tal cual es, canalla, desdichado. Casi me rompe la nariz. ¡Pero qué formidable! ¡Resulta ahora al final de cuentas que el cornudo y apaleado es él y no yo! ¡Yo!... ¡Realmente, la vida es una bufonada! Y sin embargo, hay algo serio. ¿Por qué me repugna cuando está cerca?
 
 Unas sombras se mecían ante la vidriera amarilla de los telegrafistas.
 
--¿Matarlo o no matarlo? ¿Qué me importa esto a mí? ¿Me importa matarlo? Seamos sinceros. ¿Me importa matarlo? ¿O es que no me importa nada? ¿Que me da igual que viva? Y sin embargo quiero tener voluntad de matarlo. Si ahora viniera un dios y me preguntara: ¿Quieres tener fuerzas para destruir a la humanidad? ¿Yo la destruiría? ¿La destruiría yo? No, no la destruiría. Porque el poder hacerlo le quitaría interés al asunto. Además, ¿qué iba a hacer yo solo en la tierra? ¿Mirar cómo se oxidaban las dínamos en los talleres y cómo se desmoronaban los esqueletos que estaban a caballo encima de las calderas? Cierto es que él me ha abofeteado, pero, ¿me importa eso? ¡Qué lista! ¡Qué colección! El capitán, Elsa, Barsut, el Hombre de Cabeza de Jabalí, el Astrólogo, el Rufián, Ergueta. ¡Qué lista! ¿De dónde habrán salido tantos monstruos? Yo mismo estoy descentrado, no soy el que soy, y, sin embargo, algo necesito hacer para tener conciencia de mi existencia, para afirmarla. Eso mismo, para afirmarla. Porque yo soy como un muerto. No existo ni para el capitán ni para Elsa, ni para Barsut. Ellos si quieren pueden hacerme meter preso, Barsut abofetearme otra vez, Elsa irse con otro en mis barbas, el capitán llevársela nuevamente. Para todos soy la negación de la vida. Soy algo así como el no ser. Un hombre no es como acción, luego no existe. ¿O existe a pesar de no ser? Es y no es. Ahí están esos hombres. Seguramente tienen mujer, hijos, casa. Quizá son unos miserables. Pero si alguien tratara de invadir su casa, de arrebatarles un centavo o de tocarles la mujer, se volverían como fieras. ¿Y yo por qué no me he rebelado? ¿Quién puede contestarme a esta pregunta? Yo mismo no puedo. Sé que existo así, como negación. Y cuando me digo todas estas cosas no estoy triste, sino que el alma se me queda en silencio, la cabeza en vacío. Entonces, después de ese silencio y vacío me sube desde el corazón la curiosidad del asesinato. Eso mismo. No estoy loco, ya que sé pensar, razonar. Me sube la curiosidad del asesinato, curiosidad que debe ser mi ultima tristeza, la tristeza de la curiosidad. O el demonio de la curiosidad. Ver cómo soy a través de un crimen. Eso, eso mismo. Ver cómo se comporta mi conciencia y mi sensibilidad en la acción de un crimen.
+–¿Matarlo o no matarlo? ¿Qué me importa esto a mí? ¿Me importa matarlo? Seamos sinceros. ¿Me importa matarlo? ¿O es que no me importa nada? ¿Que me da igual que viva? Y sin embargo quiero tener voluntad de matarlo. Si ahora viniera un dios y me preguntara: ¿Quieres tener fuerzas para destruir a la humanidad? ¿Yo la destruiría? ¿La destruiría yo? No, no la destruiría. Porque el poder hacerlo le quitaría interés al asunto. Además, ¿qué iba a hacer yo solo en la tierra? ¿Mirar cómo se oxidaban las dínamos en los talleres y cómo se desmoronaban los esqueletos que estaban a caballo encima de las calderas? Cierto es que él me ha abofeteado, pero, ¿me importa eso? ¡Qué lista! ¡Qué colección! El capitán, Elsa, Barsut, el Hombre de Cabeza de Jabalí, el Astrólogo, el Rufián, Ergueta. ¡Qué lista! ¿De dónde habrán salido tantos monstruos? Yo mismo estoy descentrado, no soy el que soy, y, sin embargo, algo necesito hacer para tener conciencia de mi existencia, para afirmarla. Eso mismo, para afirmarla. Porque yo soy como un muerto. No existo ni para el capitán ni para Elsa, ni para Barsut. Ellos si quieren pueden hacerme meter preso, Barsut abofetearme otra vez, Elsa irse con otro en mis barbas, el capitán llevársela nuevamente. Para todos soy la negación de la vida. Soy algo así como el no ser. Un hombre que no es como acción, luego no existe. ¿O existe a pesar de no ser? Es y no es. Ahí están esos hombres. Seguramente tienen mujer, hijos, casa. Quizá son unos miserables. Pero si alguien tratara de invadir su casa, de arrebatarles un centavo o de tocarles la mujer, se volverían como fieras. ¿Y yo por qué no me he rebelado? ¿Quién puede contestarme a esta pregunta? Yo mismo no puedo. Sé que existo así, como negación. Y cuando me digo todas estas cosas no estoy triste, sino que el alma se me queda en silencio, la cabeza en vacío. Entonces, después de ese silencio y vacío me sube desde el corazón la curiosidad del asesinato. Eso mismo. No estoy loco, ya que sé pensar, razonar. Me sube la curiosidad del asesinato, curiosidad que debe ser mi ultima tristeza, la tristeza de la curiosidad. O el demonio de la curiosidad. Ver cómo soy a través de un crimen. Eso, eso mismo. Ver cómo se comporta mi conciencia y mi sensibilidad en la acción de un crimen.
 
-«Sin embargo, estas palabras no me dan la sensación del crimen del mismo modo que el telegrama de una catástrofe en China no me da la sensación de la catástrofe. Es como si yo no fuera el que piensa el asesinato, sino otro. Otro que sería como yo un hombre liso, una sombra de hombre, a la manera del cinematógrafo. Tiene relieve, se mueve, parece que existe, que sufre, y, sin embargo, no es nada más que una sombra. Le falta vida. Que diga Dios si esto no está bien razonado. Bueno: ¿qué es lo que haría el hombre sombra? El hombre sombra percibiría el hecho, pero no sentiría su pesantez, porque le faltaba volumen para
-
-contener un peso. Es sombra. Yo también veo el suceso, pero no lo contengo. Esta debe ser una teoría nueva. ¿Qué diría un Juez del Crimen de conocerla? ¿Se daría cuenta de lo sincero que soy? ¿Mas cree esa gente en la sinceridad? Fuera de mí, de los límites de mi cuerpo, existe el movimiento, pero para ellos la vida mía debe ser tan inconcebible como vivir al mismo tiempo en la Tierra y en la Luna. Yo soy la nada para todos. Y sin embargo, si mañana tiró una bomba, o asesino a Barsut, me convierto en el todo, en el hombre que existe, el hombre para quien infinitas generaciones de jurisconsultos prepararon castigos, cárceles y teorías. Yo, que soy la nada, de pronto pondré en movimiento ese terrible mecanismo de polizontes, secretarios, periodistas, abogados, fiscales, guardacárceles, coches celulares, y nadie verá en mí un desdichado sino el hombre antisocial, el enemigo que hay que separar de la sociedad. ¡Eso sí que es curioso! Y sin embargo, sólo el crimen puede afirmar mi existen­cia, como sólo el mal afirma la presencia del hombre sobre la tierra. Y yo sería el Erdosain, previsto, temido, caracterizado por el código, y entre los miles de Erdosain anónimos que infectan el mundo, sería el otro Erdosain, el auténtico, el que es y será. Realmente, es curioso todo esto. Sin embargo, a pesar de todo existen las tinieblas y el alma del hombre es triste. Infinitamente triste. Mas la vida no puede ser así. Un sentimiento interno me dice que la vida no debe ser así. Si yo descubriera la particularidad de por qué la vida no puede ser así, me pincharía, y como un globo me desinflaría de todo este viento de mentira y quedaría de mi apariencia actual un hombre flamante, fuerte como uno de los primeros dioses que animaron la creación. Con todo esto me he ido a las ramas. ¿Lo veo o no al Astrólogo? ¿Qué dirá cuando me vea llegar otra vez? Quizá me espere. El es, como yo, un misterio para sí mismo. Esa es la verdad. Sabe tanto hacia dónde va como yo. La sociedad secreta. Toda la sociedad se resume en él en estas palabras: sociedad secreta. Otro demonio. ¡Qué colección! Barsut, Ergueta, el Ruñan y yo... Ni expresamente se podía reunir tales ejemplares. Y para colmo, la ciega embarazada. ¡Qué bestia!
+«Sin embargo, estas palabras no me dan la sensación del crimen del mismo modo que el telegrama de una catástrofe en China no me da la sensación de la catástrofe. Es como si yo no fuera el que piensa el asesinato, sino otro. Otro que sería como yo un hombre liso, una sombra de hombre, a la manera del cinematógrafo. Tiene relieve, se mueve, parece que existe, que sufre, y, sin embargo, no es nada más que una sombra. Le falta vida. Que diga Dios si esto no está bien razonado. Bueno: ¿qué es lo que haría el hombre sombra? El hombre sombra percibiría el hecho, pero no sentiría su pesantez, porque le faltaba volumen para contener un peso. Es sombra. Yo también veo el suceso, pero no lo contengo. Esta debe ser una teoría nueva. ¿Qué diría un Juez del Crimen de conocerla? ¿Se daría cuenta de lo sincero que soy? ¿Mas cree esa gente en la sinceridad? Fuera de mí, de los límites de mi cuerpo, existe el movimiento, pero para ellos la vida mía debe ser tan inconcebible como vivir al mismo tiempo en la Tierra y en la Luna. Yo soy la nada para todos. Y sin embargo, si mañana tiró una bomba, o asesino a Barsut, me convierto en el todo, en el hombre que existe, el hombre para quien infinitas generaciones de jurisconsultos prepararon castigos, cárceles y teorías. Yo, que soy la nada, de pronto pondré en movimiento ese terrible mecanismo de polizontes, secretarios, periodistas, abogados, fiscales, guardiacárceles, coches celulares, y nadie verá en mí un desdichado sino el hombre antisocial, el enemigo que hay que separar de la sociedad. ¡Eso sí que es curioso! Y sin embargo, sólo el crimen puede afirmar mi existen­cia, como sólo el mal afirma la presencia del hombre sobre la tierra. Y yo sería el Erdosain, previsto, temido, caracterizado por el código, y entre los miles de Erdosain anónimos que infectan el mundo, sería el otro Erdosain, el auténtico, el que es y será. Realmente, es curioso todo esto. Sin embargo, a pesar de todo existen las tinieblas y el alma del hombre es triste. Infinitamente triste. Mas la vida no puede ser así. Un sentimiento interno me dice que la vida no debe ser así. Si yo descubriera la particularidad de por qué la vida no puede ser así, me pincharía, y como un globo me desinflaría de todo este viento de mentira y quedaría de mi apariencia actual un hombre flamante, fuerte como uno de los primeros dioses que animaron la creación. Con todo esto me he ido a las ramas. ¿Lo veo o no al Astrólogo? ¿Qué dirá cuando me vea llegar otra vez? Quizá me espere. Él es, como yo, un misterio para sí mismo. Esa es la verdad. Sabe tanto hacia dónde va como yo. La sociedad secreta. Toda la sociedad se resume en él en estas palabras: sociedad secreta. Otro demonio. ¡Qué colección! Barsut, Ergueta, el Rufián y yo... Ni expresamente se podía reunir tales ejemplares. Y para colmo, la ciega embarazada. ¡Qué bestia!
 
 El vigilante de la estación pasó por segunda vez ante Erdosain. Remo comprendió que llamaba la atención del hombre y entonces, levantándose, se dirigió hacia la casa del Astrólogo. No había luna. Los arcos voltaicos lucían entre las aéreas enramadas de las boca­calles. De alguna quinta salían los sones de un piano y a medida que caminaba, su corazón se empequeñecía más, oprimido por la angustia que le producía el espectáculo de la felicidad que adivinaba tras de los muros de aquellas casas refrescadas por las sombras, y frente a cuyas puertas cocheras se hallaba detenido un automóvil.
 
@@ -1478,229 +1474,227 @@ El vigilante de la estación pasó por segunda vez ante Erdosain. Remo comprendi
 
 El Astrólogo se disponía a acostarse cuando escuchó pasos en el sendero que condu­cía a la casa. Como el perro no ladró, entreabrió el postigo. Un paralelogramo de luz cortó las tinieblas hasta la cúpula de los granados y por este cajón amarillo vio avanzar a Erdosain, a quien la luz daba de lleno en el rostro.
 
--¡Qué curioso! -pensó el Astrólogo-. ¡Todavía no me había fijado que este muchacho usa sombrero de paja! ¿Qué es lo que querrá? -Y después de asegurarse que tenía el revólver en la cintura (este movimiento era instintivo en él) abrió la cerradura de la puerta y Erdosain entró.
+–¡Qué curioso! –pensó el Astrólogo–. ¡Todavía no me había fijado que este muchacho usa sombrero de paja! ¿Qué es lo que querrá? –y después de asegurarse que tenía el revólver en la cintura (este movimiento era instintivo en él) abrió la cerradura de la puerta y Erdosain entró.
 
--Creí que estaba acostado.
+–Creí que estaba acostado.
 
--Pase.
+–Pase.
 
 Erdosain pasó al escritorio. Todavía estaba allí el mapa de los Estados Unidos con las banderas negras clavadas en los territorios donde dominaba el Ku-Klux-Klan. El Astrólo­go había estado trabajando en un horóscopo porque sobre la mesa estaba la caja de compases abierta. El viento que entraba por la reja movía los papeles, y Erdosain, después de esperar que aquél guardara algunos documentos en el armario, se sentó dando la espalda al jardín.
 
-Ya allí, quedóse mirando el anchuroso semblante del otro, la nariz torcida arrancan­do de la frente tumultuosa, la oreja arrepollada, el pecho enorme contenido dentro de la ropa negra y sin lustre, su cadena de cobre cruzando de parte a parte el chaleco, el anillo de acero con una piedra violeta en su mano de dedos deformes y piel curtida. Ahora que el hombre estaba sin sombrero, se veía que su cabello era crespo, enmarañadísimo y corto. Había estira­do las piernas y cargaba todo el cuerpo sobre los brazos del sillón. Con sus botas sin lustrar parecía un hombre de la montaña, quizás un buscador de oro. ¿Por qué no habían de ser así los buscadores de oro de la Patagonia? -pensó Erdosain-, y sin explicarse su distracción se quedó mirando el mapa de los Estados Unidos y repitiendo mentalmente las palabras que le había escuchado esa tarde al Astrólogo, mientras con el puntero le señalaba los estados fede­rales al Rufián.
+Ya allí, se quedó mirando el anchuroso semblante del otro, la nariz torcida arrancan­do de la frente tumultuosa, la oreja arrepollada, el pecho enorme contenido dentro de la ropa negra y sin lustre, su cadena de cobre cruzando de parte a parte el chaleco, el anillo de acero con una piedra violeta en su mano de dedos deformes y piel curtida. Ahora que el hombre estaba sin sombrero, se veía que su cabello era crespo, enmarañadísimo y corto. Había estira­do las piernas y cargaba todo el cuerpo sobre los brazos del sillón. Con sus botas sin lustrar parecía un hombre de la montaña, quizás un buscador de oro. ¿Por qué no habían de ser así los buscadores de oro de la Patagonia? –pensó Erdosain–, y sin explicarse su distracción se quedó mirando el mapa de los Estados Unidos y repitiendo mentalmente las palabras que le había escuchado esa tarde al Astrólogo, mientras con el puntero le señalaba los estados federales al Rufián.
 
--El Ku-Klux-Klan es fuerte en Texas, Ohio, Indianápolis, Oklahoma, Oregón...
+–El Ku-Klux-Klan es fuerte en Texas, Ohio, Indianápolis, Oklahoma, Oregón...
 
--¿Y qué dice, amigo... cómo?...
+–¿Y qué dice, amigo... cómo?...
 
--¡ Ah, es cierto!... He venido a verle...
+–¡Ah, es cierto!... He venido a verle...
 
--Precisamente yo me iba a acostar. Estuve trabajando en el horóscopo de un imbé­cil...
+–Precisamente yo me iba a acostar. Estuve trabajando en el horóscopo de un imbé­cil...
 
--Si le molesto me voy.
+–Si le molesto me voy.
 
--No, quédese. ¿Se ha trompeado usted? ¿Qué es lo que le pasa?
+–No, quédese. ¿Se ha trompeado usted? ¿Qué es lo que le pasa?
 
--Muchas cosas. Dígame, si usted pudiera... ¿No se va a asombrar de la pregunta?...Si usted, para fundar su logia, es decir, para conseguir los veinte mil pesos que se necesitan, si para conseguir veinte mil pesos usted tuviera que matar a un individuo, ¿usted qué haría?
+–Muchas cosas. Dígame, si usted pudiera... ¿No se va a asombrar de la pregunta?... Si usted, para fundar su logia, es decir, para conseguir los veinte mil pesos que se necesitan, si para conseguir veinte mil pesos usted tuviera que matar a un individuo, ¿usted qué haría?
 
 El Astrólogo se incorporó en la silla, quedando ahora su cuerpo, soliviantado por el asombro, en ángulo recto... Y aunque su cabeza estaba erguida por los pensamientos que en él había suscitado Erdosain, aquélla parecía pesar prodigiosamente sobre sus hombros. Restregóse las manos y escrutó el rostro de Remo.
 
--¿Por qué se le ocurre, hacerme esta pregunta?
+–¿Por qué se le ocurre hacerme esta pregunta?
 
--Es que he encontrado el candidato que tiene veinte mil pesos. Lo podemos secues­trar, y si se niega a firmarnos el cheque lo torturamos.
+–Es que he encontrado el candidato que tiene veinte mil pesos. Lo podemos secues­trar, y si se niega a firmarnos el cheque lo torturamos.
 
-El Astrólogo frunció el ceño. Ante los enigmas que encerraba esa propuesta, su perplejidad acrecentóse, y con los dedos de la mano izquierda comenzó a hacer girar el anillo sobre el anular de la derecha. La piedra violeta pasaba a cada instante frente a la cadena de bronce, y aunque él mantenía el rostro inclinado, bajo la línea de sus cejas, sus pupilas horizontales escudriñaban el rostro de Erdosain. Y la nariz torcida cobraba en esa posición el vigor de una defensa con el mentón hundido en la negra tela del corbatín.
+El Astrólogo frunció el ceño. Ante los enigmas que encerraba esa propuesta, su perplejidad se acrecentó, y con los dedos de la mano izquierda comenzó a hacer girar el anillo sobre el anular de la derecha. La piedra violeta pasaba a cada instante frente a la cadena de bronce, y aunque él mantenía el rostro inclinado, bajo la línea de sus cejas, sus pupilas horizontales escudriñaban el rostro de Erdosain. Y la nariz torcida cobraba en esa posición el vigor de una defensa con el mentón hundido en la negra tela del corbatín.
 
--A ver, explíqueme todo eso, porque yo no entiendo ni una palabra.
+–A ver, explíqueme todo eso, porque yo no entiendo ni una palabra.
 
 Ahora se había incorporado y su rostro parecía desafiar una lluvia de golpes.
 
--Es fácil y genial. Mi mujer esta noche se ha ido a vivir con otro hombre. Entonces él...
+–Es fácil y genial. Mi mujer esta noche se ha ido a vivir con otro hombre. Entonces él...
 
--¿Quién es él?...
+–¿Quién es él?...
 
--Barsut, el primo de mi mujer... Gregorio Barsut, vino a verme y a confesarme que fue él quien me denunció a la Azucarera.
+–Barsut, el primo de mi mujer... Gregorio Barsut, vino a verme y a confesarme que fue él quien me denunció a la Azucarera.
 
--¡Ah!... ¿Fue él quien lo denunció?...
+–¡Ah!... ¿Fue él quien lo denunció?...
 
--Sí, y para colmo...
+–Sí, y para colmo...
 
--Pero, ¿por qué motivo lo denunció?...
+–Pero, ¿por qué motivo lo denunció?...
 
--¡Qué sé yo!... Para humillarme... En fin, es medio loco. Un individuo que vive frenéticamente. Tiene veinte mil pesos. El padre murió en un manicomio. El va a terminar también allí. Los veinte mil pesos son la herencia de una tía por parte del padre.
+–¡Qué sé yo!... Para humillarme... En fin, es medio loco. Un individuo que vive frenéticamente. Tiene veinte mil pesos. El padre murió en un manicomio. Él va a terminar también allí. Los veinte mil pesos son la herencia de una tía por parte del padre.
 
 El Astrólogo se cogió la frente. Estaba más perplejo que nunca. A él le interesaba el asunto, mas no lo comprendía. Insistió:
 
--Cuénteme todo con detalle, ordenadamente.
+–Cuénteme todo con detalle, ordenadamente.
 
 Erdosain recomenzó su relato. Narró todo lo que conocemos. Hablaba despacio, meticulosamente, pues había desaparecido de él esa tensión nerviosa que precedía a la pro­puesta que le hizo al Astrólogo.
 
 Ahora estaba sentado al borde de la silla, la espalda arqueada, los codos apoyados en las rodillas, las mejillas enrejadas por los dedos, la mirada fija en el pavimento. La piel amarilla pegada a los huesos planos del semblante le daba la apariencia de un tísico. Un cúmulo de iniquidades salía de su garganta, sin interrupciones, sordamente, como si recitara una lección estampada al frío en el plano de su conciencia. El Astrólogo, tapados los labios con los dedos, lo escuchaba mirándolo extrañado. Se había imaginado muchas cosas, mas no tantas.
 
-Con una lentitud derivada del exceso de atención para no equivocarse, Erdosain acumulaba angustias, humillaciones, recuerdos, sufrimientos, noches que paso sin dormir, riñas espantosas. Dijo entre otras cosas:
+Con una lentitud derivada del exceso de atención para no equivocarse, Erdosain acumulaba angustias, humillaciones, recuerdos, sufrimientos, noches que pasó sin dormir, riñas espantosas. Dijo entre otras cosas:
 
--Le parecerá mentira a usted que yo, yo que he venido a proponerle el asesinato de un hombre, le hable de inocencia, y, sin embargo, tenía veinte años y era un chico. ¿Sabe usted qué clase de tristeza es esa que le hace pasar a uno la noche en un asqueroso despacho de bebidas, perdiendo el tiempo entre conversaciones estúpidas y tragos de caña? ¿Sabe lo qué es estar en un prostíbulo y de pronto contenerse para no llorar desesperadamente? Usted me mira asombrado, claro, veía un hombre raro, quizá, pero no se daba cuenta de que toda esa rareza derivaba de la angustia que yo llevaba escondida en mí. Vea, hasta me parece mentira hablar con precisión como lo hago. ¿Quién soy? ¿Adonde voy? No lo sé. Tengo la impresión de que usted es igual a mí, y por eso he venido a proponerle el asesinato de Barsut. Con el dinero fundaremos la logia y quizá podamos remover los cimientos de esta sociedad.
+–Le parecerá mentira a usted que yo, yo que he venido a proponerle el asesinato de un hombre, le hable de inocencia y, sin embargo, tenía veinte años y era un chico. ¿Sabe usted qué clase de tristeza es esa que le hace pasar a uno la noche en un asqueroso despacho de bebidas, perdiendo el tiempo entre conversaciones estúpidas y tragos de caña? ¿Sabe lo que es estar en un prostíbulo y de pronto contenerse para no llorar desesperadamente? Usted me mira asombrado, claro, veía un hombre raro, quizá, pero no se daba cuenta de que toda esa rareza derivaba de la angustia que yo llevaba escondida en mí. Vea, hasta me parece mentira hablar con precisión como lo hago. ¿Quién soy? ¿Adonde voy? No lo sé. Tengo la impresión de que usted es igual a mí, y por eso he venido a proponerle el asesinato de Barsut. Con el dinero fundaremos la logia y quizá podamos remover los cimientos de esta sociedad.
 
 El Astrólogo lo interrumpió:
 
--Pero, ¿por qué usted ha procedido siempre así?...
+–Pero, ¿por qué usted ha procedido siempre así?...
 
--Eso es lo que yo no sé. ¿Por qué usted quiere organizar la logia? ¿Por qué el Rufián Melancólico continúa explotando mujeres y lustrándose los botines a pesar de tener fortuna? ¿Por qué Ergueta se casó con una prostituta y dejó a la millonaria? ¿Cree usted acaso que yo he tolerado la bofetada de Barsut y la presencia del capitán, porque sí? Aparentemente soy un cobarde, Ergueta un loco, el Rufián un avaro, usted un obsesionado. Aparentemente somos todo eso, pero en el fondo, adentro, más abajo de nuestra conciencia y de nuestros pensa­mientos hay otra vida más poderosa y enorme... y si soportamos todo es porque creemos que soportando o procediendo como lo hacemos llegaremos por fin hasta la verdad... es decir, a la verdad de nosotros mismos.
+–Eso es lo que yo no sé. ¿Por qué usted quiere organizar la logia? ¿Por qué el Rufián Melancólico continúa explotando mujeres y lustrándose los botines a pesar de tener fortuna? ¿Por qué Ergueta se casó con una prostituta y dejó a la millonaria? ¿Cree usted acaso que yo he tolerado la bofetada de Barsut y la presencia del capitán porque sí? Aparentemente soy un cobarde, Ergueta un loco, el Rufián un avaro, usted un obsesionado. Aparentemente somos todo eso, pero en el fondo, adentro, más abajo de nuestra conciencia y de nuestros pensa­mientos hay otra vida más poderosa y enorme... y si soportamos todo es porque creemos que soportando o procediendo como lo hacemos llegaremos por fin hasta la verdad... es decir, a la verdad de nosotros mismos.
 
 El Astrólogo se levantó, avanzó hasta Erdosain y, poniéndole la mano sobre la cabe­za, dijo caviloso:
 
--Tiene usted razón, hijo mío. Nosotros somos místicos sin saberlo. Místico es el Rufián Melancólico, místico es Ergueta, usted, yo, ella y ellos... El mal del siglo, la irreligión nos ha destrozado el entendimiento y entonces buscamos fuera de nosotros lo que está en el misterio de nuestra subconciencia. Necesitamos de una religión para salvarnos de esa catás­trofe que ha caído sobre nuestras cabezas. Me dirá usted que yo no le digo nada nuevo. De acuerdo; pero acuérdese que en la tierra lo único que puede cambiar es el estilo, la costumbre, la substancia es la misma. Si usted creyera en Dios no habría pasado esa vida endemoniada, si yo creyera en Dios no estaría escuchando su propuesta de asesinar a un prójimo. Y lo más terrible es que para nosotros ha pasado ya el tiempo de adquirir una creencia, una fe. Si fuéramos a verlo a un sacerdote, éste no entendería nuestros problemas y sólo acertaría a recomendarnos que recitáramos un Padre Nuestro y que nos confesáramos todas las semanas.
+–Tiene usted razón, hijo mío. Nosotros somos místicos sin saberlo. Místico es el Rufián Melancólico, místico es Ergueta, usted, yo, ella y ellos... El mal del siglo, la irreligión nos ha destrozado el entendimiento y entonces buscamos fuera de nosotros lo que está en el misterio de nuestra subconciencia. Necesitamos de una religión para salvarnos de esa catás­trofe que ha caído sobre nuestras cabezas. Me dirá usted que yo no le digo nada nuevo. De acuerdo; pero acuérdese que en la tierra lo único que puede cambiar es el estilo, la costumbre, la substancia es la misma. Si usted creyera en Dios no habría pasado esa vida endemoniada, si yo creyera en Dios no estaría escuchando su propuesta de asesinar a un prójimo. Y lo más terrible es que para nosotros ha pasado ya el tiempo de adquirir una creencia, una fe. Si fuéramos a verlo a un sacerdote, éste no entendería nuestros problemas y sólo acertaría a recomendarnos que recitáramos un Padre Nuestro y que nos confesáramos todas las semanas.
 
--Y uno se pregunta qué es lo que debe hacerse...
+–Y uno se pregunta qué es lo que debe hacerse...
 
--Ahí está. Lo que debe hacerse. En otras épocas para nosotros hubiera quedado el refugio de un convento o de un viaje a tierras desconocidas y maravillosas. Hoy usted puede tomar un sorbete a la mañana en la Patagonia y comer bananas a la tarde en el Brasil. ¿Qué es lo que debe hacerse? Yo leo mucho, y créame, en todos los libros europeos encuentro este fondo de amargura y de angustia que me cuenta de su vida usted. Vea Estados Unidos. Las artistas se hacen colocar ovarios de platino y hay asesinos que tratan de batir el récord en crímenes horrorosos. Usted que ha caminado lo sabe. Casas, más casas, rostros distintos y corazones iguales. La humanidad ha perdido sus fiestas y sus alegrías. ¡Tan infelices son los hombres que hasta a Dios lo han perdido! Y un motor de 300 caballos sólo consigue distraerlos cuando lo pilotea un loco que se puede hacer pedazos en una cuneta. El hombre es una bestia triste a quien sólo los prodigios conseguirán emocionar. O las carnicerías. Pues bien, noso­tros con nuestra sociedad le daremos prodigios, pestes de cólera asiático, mitos, descubri­mientos de yacimientos de oro o minas de diamantes. Yo lo he observado conversando con usted. Sólo se anima cuando lo prodigioso interviene en nuestra conversación. Y así le pasa a todos los hombres, canallas o santos.
+–Ahí está. Lo que debe hacerse. En otras épocas para nosotros hubiera quedado el refugio de un convento o de un viaje a tierras desconocidas y maravillosas. Hoy usted puede tomar un sorbete a la mañana en la Patagonia y comer bananas a la tarde en el Brasil. ¿Qué es lo que debe hacerse? Yo leo mucho, y créame, en todos los libros europeos encuentro este fondo de amargura y de angustia que me cuenta de su vida usted. Vea Estados Unidos. Las artistas se hacen colocar ovarios de platino y hay asesinos que tratan de batir el récord en crímenes horrorosos. Usted que ha caminado lo sabe. Casas, más casas, rostros distintos y corazones iguales. La humanidad ha perdido sus fiestas y sus alegrías. ¡Tan infelices son los hombres que hasta a Dios lo han perdido! Y un motor de 300 caballos sólo consigue distraerlos cuando lo pilotea un loco que se puede hacer pedazos en una cuneta. El hombre es una bestia triste a quien sólo los prodigios conseguirán emocionar. O las carnicerías. Pues bien, noso­tros con nuestra sociedad le daremos prodigios, pestes de cólera asiático, mitos, descubri­mientos de yacimientos de oro o minas de diamantes. Yo lo he observado conversando con usted. Sólo se anima cuando lo prodigioso interviene en nuestra conversación. Y así le pasa a todos los hombres, canallas o santos.
 
--Entonces, ¿lo secuestramos a Barsut?
+–Entonces, ¿lo secuestramos a Barsut?
 
--Sí. Ahora hay que ver de qué modo podemos apoderarnos de él y del dinero.
+–Sí. Ahora hay que ver de qué modo podemos apoderarnos de él y del dinero.
 
 El viento removió el follaje. Erdosain quedó unos segundos mirando la franja de luz que por la ventana entreabierta caía sobre los granados. El Astrólogo había corrido su silla hasta el armario de modo que apoyaba la cabeza en el tablero ocre, y sus dedos jugaron nuevamente con el anillo de acero haciéndolo girar ante sus ojos.
 
--¿Cómo nos apoderaremos? Es muy fácil. Yo le diré a Barsut que he averiguado dónde se encuentra el capitán con Elsa...
+–¿Cómo nos apoderaremos? Es muy fácil. Yo le diré a Barsut que he averiguado dónde se encuentra el capitán con Elsa...
 
--Sí, eso está bien. Pero, ¿cómo lo ha averiguado usted? Es lo que no va a dejar de preguntarle el otro...
+–Sí, eso está bien. Pero, ¿cómo lo ha averiguado usted? Es lo que no va a dejar de preguntarle el otro...
 
--Diciéndole que me he dirigido a la Dirección del Personal del Ministerio de Guerra.
+–Diciéndole que me he dirigido a la Dirección del Personal del Ministerio de Guerra.
 
--Perfecto... muy bien... clarísimo...
+–Perfecto... muy bien... clarísimo...
 
 Ahora el Astrólogo se había incorporado vivamente y miraba interesado a Erdosain.
 
--Y con el pretexto de que convenza a Elsa para que vuelva otra vez a mi lado, lo traemos.
+–Y con el pretexto de que convenza a Elsa para que vuelva otra vez a mi lado, lo traemos.
 
--Admirable. Deje que piense un poco. Todo lo que plantea usted... claro... está muy bien. Ah... dígame una cosa, ¿tiene parientes él?
+–Admirable. Deje que piense un poco. Todo lo que plantea usted... claro... está muy bien. Ah... dígame una cosa, ¿tiene parientes él?
 
--Salvo mi señora, no.
+–Salvo mi señora, no.
 
--¿Y dónde vive?
+–¿Y dónde vive?
 
--En una pensión. La hija de la dueña es bizca.
+–En una pensión. La hija de la dueña es bizca.
 
--¿Qué dirán cuando desaparezca Barsut?
+–¿Qué dirán cuando desaparezca Barsut?
 
--Podemos hacer esto, que es admirable. Le enviamos a la patrona un telegrama desde Rosario, firmado por él, diciendo que le envíe los baúles a un determinado hotel, donde usted estará viviendo bajo el nombre de Gregorio Barsut.
+–Podemos hacer esto, que es admirable. Le enviamos a la patrona un telegrama desde Rosario, firmado por él, diciendo que le envíe los baúles a un determinado hotel, donde usted estará viviendo bajo el nombre de Gregorio Barsut.
 
--Esto mismo. ¿Sabe que usted lo ha estudiado muy bien? Es perfecto el plan. Cierto es que todo se presta, el capitán, las direcciones del Ministerio, no tener parientes, el vivir en una pensión. Es más claro que una jugada de ajedrez. Está bien.
+–Esto mismo. ¿Sabe que usted lo ha estudiado muy bien? Es perfecto el plan. Cierto es que todo se presta, el capitán, las direcciones del Ministerio, no tener parientes, el vivir en una pensión. Es más claro que una jugada de ajedrez. Está bien.
 
 Dicho esto comenzó a pasearse de un lado a otro de la habitación. Cada vez que cruzaba ante la reja de la ventana, el jardín oscurecía o en el armario se volcaba una sombra que llegaba hasta los tirantes del techo. No le faltó razón a Erdosain, cuando dijo que el plan era nítido «como si lo hubiera estampado en una plancha de hierro a miles de libras de presión». Y mientras en la habitación las botas del Astrólogo resonaban sordamente en cada paso, Erdosain se lamentaba ya de que el «plan» fuera tan simple y poco novelesco. Le hubiera agradado una aventura más peligrosa, menos geométrica.
 
--¡Qué diablo! ¡Esto no tiene gracia! ¡Así cualquiera es asesino!
+–¡Qué diablo! ¡Esto no tiene gracia! ¡Así cualquiera es asesino!
 
--¿Y Gregorio no tiene relaciones con la bizca?
+–¿Y Gregorio no tiene relaciones con la bizca?
 
--No.
+–No.
 
--¿Y por qué usted me habló de ella, entonces?
+–¿Y por qué usted me habló de ella, entonces?
 
--No sé.
+–No sé.
 
--¿Y usted no tiene miedo de tener remordimientos después que «eso» suceda?
+–¿Y usted no tiene miedo de tener remordimientos después que «eso» suceda?
 
--Vea, yo creo que eso sólo ocurre en las novelas. En la realidad yo he hecho acciones malas y buenas y ni en un caso ni en el otro he sentido ni la mayor alegría ni el menor remordimiento. Yo creo que se ha dado en llamar remordimiento el temor al castigo. Aquí a uno no lo ahorcan, y sólo los cobardes...
+–Vea, yo creo que eso sólo ocurre en las novelas. En la realidad yo he hecho acciones malas y buenas y ni en un caso ni en el otro he sentido ni la mayor alegría ni el menor remordimiento. Yo creo que se ha dado en llamar remordimiento el temor al castigo. Aquí a uno no lo ahorcan, y sólo los cobardes...
 
--¿Y usted?...
+–¿Y usted?...
 
--Permítame. Yo no soy un hombre cobarde. Soy un frío que es distinto. Razone usted. Si impasiblemente me he dejado llevar la mujer, y abofetear por un individuo que me traicionó, ¿con cuánta más razón asistiré impasiblemente a la escena de su muerte, siempre que ésta no sea una carnicería?
+–Permítame. Yo no soy un hombre cobarde. Soy un frío que es distinto. Razone usted. Si impasiblemente me he dejado llevar la mujer, y abofetear por un individuo que me traicionó, ¿con cuánta más razón asistiré impasiblemente a la escena de su muerte, siempre que ésta no sea una carnicería?
 
--Cierto. Es muy lógico. Todo en usted es lógico. ¿Sabe usted, Erdosain, que es un	••:.
+–Cierto. Es muy lógico. Todo en usted es lógico. ¿Sabe usted, Erdosain, que es un individuo interesante?
 
-individuo interesante?
+–Lo mismo decía mi esposa. Esto no le impidió irse con otro.
 
--Lo mismo decía mi esposa. Esto no le impidió irse con otro.
+–¿Y usted lo odia a él?	
 
--¿Y usted lo odia a él?	
+–A veces. Depende. Quizá en mí pueda más la repulsión física que el odio. En ver­dad, odio no, porque nunca podemos odiar a las personas que sabemos son capaces de hacer exactamente las mismas canalladas que nosotros.
 
--A veces. Depende. Quizá en mí pueda más la repulsión física que el odio. En ver­dad, odio no, porque nunca podemos odiar a las personas que sabemos son capaces de hacer exactamente las mismas canalladas que nosotros.
+–¿Y por qué quiere matarlo, entonces, usted?
 
--¿Y por qué quiere matarlo, entonces, usted?
+–¿Y por qué quiere usted fundar la sociedad?
 
--¿Y por qué quiere usted fundar la sociedad?
+–¿Y cree usted que ese crimen va a tener alguna influencia en su vida?
 
--¿Y cree usted que ese crimen va a tener alguna influencia en su vida?
+–Esa es la curiosidad que tengo. Saber si mi vida, mi forma de ver las cosas, mi sensibilidad, cambian con el espectáculo de su muerte. Además, que tengo ya necesidad de matar a alguien. Aunque sea para distraerme, ¿sabe?
 
--Esa es la curiosidad que tengo. Saber si mi vida, mi forma de ver las cosas, mi sensibilidad, cambian con el espectáculo de su muerte. Además, que tengo ya necesidad de matar a alguien. Aunque sea para distraerme, ¿sabe?
+–¿Y usted quiere que yo le saque las castañas del fuego?
 
--¿Y usted quiere que yo le saque las castañas del fuego?
+–¡Claro!... porque para usted en estas circunstancias, sacarme las castañas del fuego equivale a tener veinte mil pesos para instalar la sociedad y los prostíbulos...
 
--¡Claro!... porque para usted en estas circunstancias, sacarme las castañas del fuego equivale a tener veinte mil pesos para instalar la sociedad y los prostíbulos...
+–¿Y cómo se le ocurrió a usted que yo era capaz de hacer «eso»?
 
--¿Y cómo se le ocurrió a usted que yo era capaz de hacer «eso»?
+–¿Cómo? Hace mucho tiempo que lo he observado. Pero la convicción de que usted era un hombre de embarcarse en una aventura peligrosa se me ocurrió hace un año cuando lo conocí en la Sociedad Teosófica.
 
--¿Cómo? Hace mucho tiempo que lo he observado. Pero la convicción de que usted era un hombre de embarcarse en una aventura peligrosa se me ocurrió hace un año cuando lo conocí en la Sociedad Teosófica.
+–¿A ver?...
 
--¿A ver?...
+–Me acuerdo como si fuera ahora. Una carbonera, a su izquierda, estaba hablando del periespíritu con un zapatero. ¿Usted no se ha fijado qué predilección tienen los zapateros por las ciencias ocultas?
 
--Me acuerdo como si fuera ahora. Una carbonera, a su izquierda, estaba hablando del periespíritu con un zapatero. ¿Usted no se ha fijado qué predilección tienen los zapateros por las ciencias ocultas?
+–¿Y?
 
--¿Y?
+–En esa circunstancia usted se dirigió a un caballero polaco que mantenía relaciones con el espíritu de Sobiezki.
 
--En esa circunstancia usted se dirigió a un caballero polaco que mantenía relaciones con el espíritu de Sobiezki.
+–No recuerdo...
 
--No recuerdo...
+–Yo sí. El caballero polaco, usted mismo me lo dijo más tarde, era peón de albañil... Usted y el caballero polaco pasaron de Sobiezki a discutir sobre el «sentido de orientación de las palomas» y usted contestó: «Para mí la única importancia que tiene el sentido de orienta­ción de las palomas es servir como intermediarias en un chantaje», y allí usted comenzó a explicar... Bueno, cuando usted terminó de hablar, entre el asombro del polaco, la carbonera y el zapatero, yo me dije: este hombre es un audaz en disponibilidad...
 
--Yo sí. El caballero polaco, usted mismo me lo dijo más tarde, era peón de albañil... Usted y el caballero polaco pasaron de Sobiezki a discutir sobre el «sentido de orientación de las palomas» y usted contestó: «Para mí la única importancia que tiene el sentido de orienta­ción de las palomas es servir como intermediarias en un chantage», y allí usted comenzó a explicar... Bueno, cuando usted terminó de hablar, entre el asombro del polaco, la carbonera y el zapatero, yo me dije: este hombre es un audaz en disponibilidad...
+–¡Jajá! ¡Qué muchacho es usted!
 
--¡Jajá! ¡Qué muchacho es usted!
+–Perfecto.
 
--Perfecto.
+–Usted debe tomar en cuenta esto: es un mecanismo que se desmonta en tres submecanismos que tienen que marchar armoniosamente, aunque son independientes. Vea: El primer mecanismo es el secuestro. El segundo, la estadía de usted en Rosario, donde pedirá y recibirá el equipaje con el nombre de Barsut. El tercero, asesinato y procedimiento para hacerlo desaparecer.
 
--Usted debe tomar en cuenta esto: es un mecanismo que se desmonta en tres submecanismos que tienen que marchar armoniosamente, aunque son independientes. Vea: El primer mecanismo es el secuestro. El segundo, la estada de usted en Rosario, donde pedirá y recibirá el equipaje con el nombre de Barsut. El tercero, asesinato y procedimiento para hacerlo desaparecer.
+–¿Destruiremos el cadáver?
 
--¿Destruiremos el cadáver?
+–Claro. Con ácido nítrico o si no con un horno donde... Si es horno hay que tener un mínimo de quinientos grados para carbonizar también los huesos.
 
--Claro. Con ácido nítrico o si no con un horno donde... Si es horno hay que tener un mínimo de quinientos grados para carbonizar también los huesos.
+–¿Y de dónde ha sacado usted esos datos?
 
--¿Y de dónde ha sacado usted esos datos?
+–Ya sabe que soy inventor. Ah, de los veinte mil pesos podemos dedicar una parte para fabricar la rosa de cobre en gran escala. Ya he encargado su fabricación a una familia amiga. Posiblemente uno de los muchachos ingrese en la sociedad. Además, días pasados se me ha ocurrido un cambio electromagnético para la máquina de vapor de Stephenson. Bueno, lo que yo he ideado es cien veces más sencillo. ¿Sabe usted lo que a mí me haría falta? Irme un tiempo afuera, estar en la montaña, descansar y estudiar.
 
--Ya sabe que soy inventor. Ah, de los veinte mil pesos podemos dedicar una parte para fabricar la rosa de cobre en gran escala. Ya he encargado su fabricación a una familia amiga. Posiblemente uno de los muchachos ingrese en la sociedad. Además, días pasados se me ha ocurrido un cambio electromagnético para la máquina de vapor de Stephenson. Bueno, lo que yo he ideado es cien veces más sencillo. ¿Sabe usted lo que a mí me haría falta? Irme un tiempo afuera, estar en la montaña, descansar y estudiar.
+–Y usted podría ir a la colonia que organizaremos...
 
--Y usted podría ir a la colonia que organizaremos...
+–¿Entonces está conforme con el plan?
 
--¿Entonces está conforme con el plan?
+–¡Ah! Una cosa. El dinero, ¿de dónde lo sacó Barsut?
 
--¡Ah! Una cosa. El dinero, ¿de dónde lo sacó Barsut?
+–Hace tres años vendió una propiedad que le tocó en herencia.
 
--Hace tres años vendió una propiedad que le tocó en herencia.
+–Y lo tiene en caja de ahorros...
 
--Y lo tiene en caja de ahorros...
+–No, en cuenta corriente.
 
--No, en cuenta corriente.
+–¿Así que no vive del interés?
 
--¿Así que no vive del interés?
+–No, lo va gastando de a poco. De a doscientos pesos mensuales. Dice que antes de terminar con esa suma habrá muerto.
 
--No, lo va gastando de a poco. De a doscientos pesos mensuales. Dice que antes de terminar con esa suma habrá muerto.
+–Es curioso. ¿Y qué tipo es él?
 
--Es curioso. ¿Y qué tipo es él?
+–Fuerte. Cruel. El secuestro va a tener que estudiarlo muy bien, porque se defenderá como una fiera.
 
--Fuerte. Cruel. El secuestro va a tener que estudiarlo muy bien, porque se defenderá como una fiera.
+–Muy bien.
 
--Muy bien.
+–¡Ah!, antes de que me vaya. ¿Usted le dirá algo de esto al Rufián?
 
--¡Ah!, antes de que me vaya. ¿Usted le dirá algo de esto al Rufián?
+–No. Es un secreto entre nosotros. El Rufián participará como organizador de los prostíbulos, nada más. ¿Usted paga mañana en la Azucarera, no?
 
--No. Es un secreto entre nosotros. El Rufián participará como organizador de los prostíbulos, nada más. ¿Usted paga mañana en la Azucarera, no?
+–Sí.
 
--Sí.
+–Ahora que me acuerdo, conozco a un impresor. Él será quien nos haga la circular del Ministerio de Guerra.
 
--Ahora que me acuerdo, conozco a un impresor. El será quien nos haga la circular del Ministerio de Guerra.
+Erdosain se paseó un instante por la habitación.
 
-Erdosain paseóse un instante por la habitación.
+–El secuestro es fácil. Usted va a Rosario y con un telegrama pide los baúles. Lo que ocurre es que cuando uno se encuentra frente a la comisión de un delito...
 
--El secuestro es fácil. Usted va a Rosario y con un telegrama pide los baúles. Lo que ocurre es que cuando uno se encuentra frente a la comisión de un delito...
+–Es que no será el único que cometeremos...
 
--Es que no será el único que cometeremos...
+–¿Cómo?...
 
--¿Cómo?...
+–Y claro. Otra de las cosas que me preocupa es el mantenimiento del secreto en la sociedad. Yo había pensado lo siguiente. En cada punto del estado habrá una célula revolu­cionaria. El comité central radicará en la capital. Entonces, este comité estaría organizado de la siguiente forma: jefe de capital de provincia, miembro del comité central, jefe del distrito de provincia, miembro del comité de la capital de provincia, jefe de villa principal, miembro del comité del distrito cabeza.
 
--Y claro. Otra de las cosas que me preocupa es el mantenimiento del secreto en la sociedad. Yo había pensado lo siguiente. En cada punto del estado habrá una célula revolu­cionaria. El comité central radicará en la capital. Entonces, este comité estaría organizado de la siguiente forma: jefe de capital de provincia, miembro del comité central, jefe del distrito de provincia, miembro del comité de la capital de provincia, jefe de villa principal, miembro del comité del distrito cabeza.
+–¿No le parece muy complicado a usted?
 
--¿No le parece muy complicado a usted?
-
--No sé, se estudiaría. Otros detalles de organización que se me han ocurrido son: cada célula dispondrá de un transmisor y receptor radiotelegráfico, siendo además obligación que cada diez asociados adquieran un automóvil, diez fusiles, dos ametralladoras, debiendo a su vez cien miembros costear el precio de un aeroplano de guerra, bombas, etc., etc. Los ascensos serán por disposición del consejo superior, las elecciones de categoría inferior se regirán por votaciones calificadas. Pero es hora de acostarse. Dentro de un rato tiene tren... ¿o se quiere quedar a dormir aquí?
+–No sé, se estudiaría. Otros detalles de organización que se me han ocurrido son: cada célula dispondrá de un transmisor y receptor radiotelegráfico, siendo además obligación que cada diez asociados adquieran un automóvil, diez fusiles, dos ametralladoras, debiendo a su vez cien miembros costear el precio de un aeroplano de guerra, bombas, etc., etc. Los ascensos serán por disposición del consejo superior, las elecciones de categoría inferior se regirán por votaciones calificadas. Pero es hora de acostarse. Dentro de un rato tiene tren... ¿o se quiere quedar a dormir aquí?
 
 En realidad Erdosain no tenía nada que hacer. Ya el reloj había dado las tres de la mañana y las palabras que pronunciara el Astrólogo pasaron por su entendimiento, casi bo­rrosas. No le interesaba nada. Quería irse, eso era todo. Irse lejos.
 
@@ -1713,33 +1707,33 @@ Amanece. Erdosain avanza por el sendero que bordea la vereda rota junto a las qu
 
 Erdosain avanza pensando:
 
--Esto es triste como el desierto. Ahora ella duerme con él.
+–Esto es triste como el desierto. Ahora ella duerme con él.
 
 Rápidamente la claridad aguanosa del alba colma los callejones de vahos blanqueci­nos.
 
 Erdosain se dice:
 
--Sin embargo, hay que ser fuerte. Me acuerdo de cuando era chico. Creía ver cami­nar, por las crestas de las nubes, grandes hombres con el pelo rizado y chapados de la luz los verticales miembros. En realidad caminaban dentro del país de Alegría que estaba en mí. ¡ Ah!, y perder un sueño es casi como perder una fortuna. ¿Qué digo? Es peor. Hay que ser fuerte, ésa es la única verdad. Y no tener piedad. Y aunque uno se sienta cansado, decirse: Estoy cansado ahora, estoy arrepentido ahora, pero no lo estaré mañana. Esa es la verdad. Mañana.
+–Sin embargo, hay que ser fuerte. Me acuerdo de cuando era chico. Creía ver cami­nar, por las crestas de las nubes, grandes hombres con el pelo rizado y chapados de la luz los verticales miembros. En realidad caminaban dentro del país de Alegría que estaba en mí. ¡Ah!, y perder un sueño es casi como perder una fortuna. ¿Qué digo? Es peor. Hay que ser fuerte, ésa es la única verdad. Y no tener piedad. Y aunque uno se sienta cansado, decirse: Estoy cansado ahora, estoy arrepentido ahora, pero no lo estaré mañana. Esa es la verdad. Mañana.
 
 Erdosain cierra los ojos. Un perfume que no puede discernir si es de nardo o de clavel, riega la atmósfera de un misterioso embalsamiento de fiesta.
 
 Y Erdosain piensa:
 
--A pesar de todo es necesario injertar una alegría en la vida. No se puede vivir así. No hay derecho. Por encima de toda nuestra miseria es necesario que flote una alegría, qué sé yo, algo más hermoso que el feo rostro humano, que la horrible verdad humana. Tiene razón el Astrólogo. Hay que inaugurar el imperio de la Mentira, de las magníficas mentiras. ¿Ado­rar a alguien? ¿Hacerse un camino entre este bosque de estupidez? ¿Pero cómo?
+–A pesar de todo es necesario injertar una alegría en la vida. No se puede vivir así. No hay derecho. Por encima de toda nuestra miseria es necesario que flote una alegría, qué sé yo, algo más hermoso que el feo rostro humano, que la horrible verdad humana. Tiene razón el Astrólogo. Hay que inaugurar el imperio de la Mentira, de las magníficas mentiras. ¿Ado­rar a alguien? ¿Hacerse un camino entre este bosque de estupidez? ¿Pero cómo?
 
 Erdosain continúa su soliloquio con los pómulos teñidos de rosa:
 
--¿Qué importa que yo sea un asesino o un degradado? ¿Importa eso? No. Es secun­dario. Hay algo más hermoso que la vileza de todos los hombres juntos, y es la alegría. Si yo estuviera alegre, la felicidad me absolvería de mi crimen. La alegría es lo esencial. Y también querer a alguien...
+–¿Qué importa que yo sea un asesino o un degradado? ¿Importa eso? No. Es secun­dario. Hay algo más hermoso que la vileza de todos los hombres juntos, y es la alegría. Si yo estuviera alegre, la felicidad me absolvería de mi crimen. La alegría es lo esencial. Y también querer a alguien...
 
 El cielo verdea a lo lejos, mientras que la poca elevada oscuridad envuelve aún los troncos de los árboles. Erdosain frunce el ceño. De su espíritu se desprenden vapores de recuerdo, neblinas doradas, rieles brillantes que se pierden en el campo de una tarde above­dada de sol. Y el rostro de la criatura, una carita pálida, de ojos verdosos y rulos negros, escapando debajo de un sombrerito de paño, se eleva de la superficie de su espíritu.
 
-Hace dos años. No. Tres. Sí, tres años. ¿Cómo se llamaba? María, María Esther. ¿Cómo se llamaba? La dulce carita ocupa ahora con su temperatura un anochecido espacio de ensueño. ¡Se acuerda de tantas cosas! El estaba sentado a su lado, el viento movía sus rizos negros, de pronto extendió la mano y entre la yema de los dedos tomó la ardiente barbilla de la criatura. ¿Dónde está ahora? ¿Bajo qué techo duerme? ¿si la encontrara, la reconocería? Hace tres años. La conoció en un tren, conversó algunos minutos con ella du­rante quince días, y después desapareció. Eso es todo y nada más. Y ella no sabía que estaba casado. ¿Qué es lo que hubiera dicho de saberlo? Sí, ahora se acuerda. Se llamaba María. ¿Pero importa algo eso? No. Había algo más hermoso en todo aquello, la dulce fiebre que caía de sus ojos a momentos verdes y a momentos pardos. Y su silencio. Erdosain recuerda viajes en ferrocarril; está sentado junto a la criatura que ha dejado caer la cabeza sobre su hombro, él enreda los dedos en los rizos y la criatura de quince años tiembla en silencio. Si ella supiera ahora que él proyecta matar a un hombre, ¿qué diría? Posiblemente no entendiera esa palabra. Y Erdosain recuerda con qué timidez de colegiala levantaba el brazo y apoyaba la mano en sus mejillas ríspidas de barba; y quizá esa felicidad que es la que él perdió es la que se necesita para borrar del semblante humano tanto vestigio de fealdad.
+Hace dos años. No. Tres. Sí, tres años. ¿Cómo se llamaba? María, María Esther. ¿Cómo se llamaba? La dulce carita ocupa ahora con su temperatura un anochecido espacio de ensueño. ¡Se acuerda de tantas cosas! Él estaba sentado a su lado, el viento movía sus rizos negros, de pronto extendió la mano y entre la yema de los dedos tomó la ardiente barbilla de la criatura. ¿Dónde está ahora? ¿Bajo qué techo duerme?, ¿si la encontrara, la reconocería? Hace tres años. La conoció en un tren, conversó algunos minutos con ella du­rante quince días, y después desapareció. Eso es todo y nada más. Y ella no sabía que estaba casado. ¿Qué es lo que hubiera dicho de saberlo? Sí, ahora se acuerda. Se llamaba María. ¿Pero importa algo eso? No. Había algo más hermoso en todo aquello, la dulce fiebre que caía de sus ojos a momentos verdes y a momentos pardos. Y su silencio. Erdosain recuerda viajes en ferrocarril; está sentado junto a la criatura que ha dejado caer la cabeza sobre su hombro, él enreda los dedos en los rizos y la criatura de quince años tiembla en silencio. Si ella supiera ahora que él proyecta matar a un hombre, ¿qué diría? Posiblemente no entendiera esa palabra. Y Erdosain recuerda con qué timidez de colegiala levantaba el brazo y apoyaba la mano en sus mejillas ríspidas de barba; y quizá esa felicidad que es la que él perdió es la que se necesita para borrar del semblante humano tanto vestigio de fealdad.
 
 Erdosain se examina ahora con curiosidad. ¿Por qué piensa tantas cosas? ¿Con qué derecho? ¿Desde cuándo los candidatos a asesinos piensan? Y sin embargo, hay algo en él que le da las gracias al Universo. ¿Consiste en humildad o en amor? No lo sabe, pero com­prende que en la incoherencia hay dulzura, se le ocurre que una pobre alma al enloquecer abandona con gratitud los sufrimientos de esta tierra. Y más abajo de esta piedad, una fuerza implacable, casi irónica, le tuerce el labio con un mohín de desprecio.
 
-Los dioses existen. Viven escondidos bajo la envoltura de ciertos hombres que se acuerdan de la vida en el planeta cuando aún la tierra era niña. El encierra también a un dios. ¿Es posible? Se toca la nariz, adolorida por las trompadas que recibió de Barsut, y la fuerza implacable insiste en esa afirmación: El lleva un dios escondido bajo su piel doliente. ¿Pero el Código Penal ha previsto qué castigo puede aplicarse a un dios homicida? ¿Qué diría el Juez de Instrucción si él le contestara: «Peco porque llevo un dios en mí»?
+Los dioses existen. Viven escondidos bajo la envoltura de ciertos hombres que se acuerdan de la vida en el planeta cuando aún la tierra era niña. Él encierra también a un dios. ¿Es posible? Se toca la nariz, adolorida por las trompadas que recibió de Barsut, y la fuerza implacable insiste en esa afirmación: Él lleva un dios escondido bajo su piel doliente. ¿Pero el Código Penal ha previsto qué castigo puede aplicarse a un dios homicida? ¿Qué diría el Juez de Instrucción si él le contestara: «Peco porque llevo un dios en mí»?
 
-¿Mas no es cierto? Este amor, esta fuerza que él conduce en el amanecer, bajo la humedad de los árboles que gotean rocío en la oscuridad, ¿no es una virtud de los dioses? Y nuevamente de la superficie de su espíritu se desprende el relieve de aquel recuerdo: Una ovalada carita pálida que tenía los ojos verdosos y rulos negros a veces arrollados a la gargan­ta por el viento. ¡Qué sencillo es esto! No necesita decir nada, tan perfecto es su arrobamiento. Aunque nada de improbable tendría que se hubiera vuelto loco pensando en la colegiala bajo los árboles que gotean humedad. Si no, ¿cómo se explica que su alma sea tan distinta a la que lo endemoniaba por la noche? ¿O es que en la noche sólo pueden concebirse pensa­mientos sombríos? Aunque así sea no importa. El es otro ahora. Sonríe junto a los árboles. ¿No es magníficamente idiota esto? El Rufián Melancólico, la Ciega depravada, Ergueta con el mito de Cristo, el Astrólogo, todos estos fantasmas incomprensibles, que dicen palabras humanas, que tienen una palabra carnal, ¿qué son junto a él que apoyado en un poste, junto a un cerco de ligustro, siente el avance de la vida que llega a tocarle el pecho?
+¿Mas no es cierto? Este amor, esta fuerza que él conduce en el amanecer, bajo la humedad de los árboles que gotean rocío en la oscuridad, ¿no es una virtud de los dioses? Y nuevamente de la superficie de su espíritu se desprende el relieve de aquel recuerdo: Una ovalada carita pálida que tenía los ojos verdosos y rulos negros a veces arrollados a la gargan­ta por el viento. ¡Qué sencillo es esto! No necesita decir nada, tan perfecto es su arrobamiento. Aunque nada de improbable tendría que se hubiera vuelto loco pensando en la colegiala bajo los árboles que gotean humedad. Si no, ¿cómo se explica que su alma sea tan distinta a la que lo endemoniaba por la noche? ¿O es que en la noche sólo pueden concebirse pensa­mientos sombríos? Aunque así sea no importa. Él es otro ahora. Sonríe junto a los árboles. ¿No es magníficamente idiota esto? El Rufián Melancólico, la Ciega depravada, Ergueta con el mito de Cristo, el Astrólogo, todos estos fantasmas incomprensibles, que dicen palabras humanas, que tienen una palabra carnal, ¿qué son junto a él que apoyado en un poste, junto a un cerco de ligustro, siente el avance de la vida que llega a tocarle el pecho?
 
 Es otro hombre, y por el solo hecho de haber pensado en la criatura que en un vagón de tren dejaba caer la cabeza sobre su hombro. Erdosain cierra los ojos. El acre olor de la tierra le escalofría. Un vértigo sube de su carne cansada.
 
@@ -1749,8 +1743,8 @@ En realidad, ¿qué diablos hace allí? Erdosain guiña un párpado, tiene conci
 
 Le resbalan los zapatos en la corteza lustrosa, los ramojos le fustigan elásticamente el rostro, alarga el brazo y se coge a una rama, asomando la cabeza por entre las hojas moja­das. La calle, abajo, sigue en declive hacia un archipiélago de árboles.
 
-Está arriba del árbol. Ha violado el sentido común, porque sí, sin objeto, como quien asesina a un transeúnte que se le cruzó al paso, para ver si luego puede descubrirlo la policía. Hacia el este, sobre lo verdinoso del cielo, se recortan fúnebres chimeneas; luego, montes de verdura como monstruosos rebaños de elefantes rellenan los bajos de Bánfield, y la misma tristeza está en él. No es suficiente haber violado el sentido común para sentirse feliz. Sin embargo, hace un esfuerzo y dice en voz alta:
+Está arriba del árbol. Ha violado el sentido común, porque sí, sin objeto, como quien asesina a un transeúnte que se le cruzó al paso, para ver si luego puede descubrirlo la policía. Hacia el este, sobre lo verdinoso del cielo, se recortan fúnebres chimeneas; luego, montes de verdura como monstruosos rebaños de elefantes rellenan los bajos de Banfield, y la misma tristeza está en él. No es suficiente haber violado el sentido común para sentirse feliz. Sin embargo, hace un esfuerzo y dice en voz alta:
 
--¡Eh! bestias dormidas: ¡eh!, juro que... pero no... yo quiero violar la ley del sentido común, tranquilos animalitos... No. Lo que quiero es pregonar la audacia, la nueva vida. Hablo desde encima del árbol, no estoy «en la palmera», sino en la acacia: ¡eh! bestias dormi­das.
+–¡Eh! bestias dormidas: ¡eh!, juro que... pero no... yo quiero violar la ley del sentido común, tranquilos animalitos... No. Lo que quiero es pregonar la audacia, la nueva vida. Hablo desde encima del árbol, no estoy «en la palmera», sino en la acacia: ¡eh! bestias dormi­das.
 
 Rápidamente decrecen sus fuerzas. Mira en redor casi extrañado de encontrarse en semejante posición, de pronto el semblante de la remota criatura estalla en él como una flor, e inmensamente avergonzado de la comedia que representa, baja de la planta. Está vencido. Es un desgraciado.
