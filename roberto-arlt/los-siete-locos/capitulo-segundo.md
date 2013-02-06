@@ -11,31 +11,29 @@ Los días que sucedieron al secuestro de Barsut, los pasó Erdosain encerrado en
 
 Durante aquel período no pudo nunca reconstruir el semblante de Elsa.
 
--Se había alejado tan misteriosamente de mi espíritu, que me costaba un gran esfuer­zo recordar los rasgos de su fisonomía.
+–Se había alejado tan misteriosamente de mi espíritu, que me costaba un gran esfuer­zo recordar los rasgos de su fisonomía.
 
 Luego dormía o cavilaba. Trató, aunque inútilmente, de preocuparse de dos proyec­tos que consideraba importantes: el cambio electromagnético para máquinas de vapor, y el de una tintorería de perros, que lanzaría al mercado canes de pelambre teñido de azul eléctrico, bull-dogs verdes, lebreles violetas, foxterriers lilas, falderos con fotografías de crepúsculos a tres tintas en el lomo, perritas con arabescos como tapices persas. Estaba tranquilo: una tarde se durmió y tuvo este sueño:
 
 Sabía que era novio de una de las infantas. Este suceso acompañado del hecho de ser lacayo de su majestad, Alfonso XIII, le regocijaba inmediatamente, pues los generales le rodeaban, haciéndole intencionadas preguntas. Un espejo de agua mordía los troncos de los árboles siempre florecidos en blanco mayor, mientras que la infanta, una niña alta, tomándo­le del brazo, le decía ceceando:
 
--¿Me amáis, Erdosain?
+–¿Me amáis, Erdosain?
 
 Erdosain, echándose a reír, le contestó con grosería a la infanta: un círculo de espa­das brilló ante sus ojos y sintió que se hundía, cataclismos sucesivos desgajaron los continen­tes, pero él hacía muchos siglos que dormía en un cuartujo de plomo en el fondo del mar. Tras del vidriado ventanuco iban y venían tiburones tuertos, furiosos porque sufrían de almorranas, y Erdosain se regocijó silenciosamente, riéndose con risitas del hombre que no quiere ser oído. Ahora todos los peces del mar estaban tuertos, y él era Emperador de la Ciudad de los Peces Tuertos. Una muralla eterna circundaba el desierto a la orilla del mar, el cielo verde se oxidaba en los ladrillos del muro, y en las paredes de las torres rojas, las olas entrechocaban miríadas de peces gordos y tuertos, monstruosos peces ventrudos enfermos de lepra marina, mientras que un negro hidrópico amenazaba con el puño a un ídolo de sal.
 
-Otras veces, Erdosain evocaba tiempos pasados y en los que había previsto los suce­sos actuales, como le dijera aquella noche al capitán. Sufrimientos sordos, merodeos en torno
+Otras veces, Erdosain evocaba tiempos pasados y en los que había previsto los suce­sos actuales, como le dijera aquella noche al capitán. Sufrimientos sordos, merodeos en torno de una realidad que ahora le hacía decir:
 
-de una realidad que ahora le hacia decir:
-
--Tenía razón, no me equivocaba.
+–Tenía razón, no me equivocaba.
 
 Así, recordaba que una noche conversando con Elsa, ésta, en un momento de since­ridad, le confesó que de haber sido soltera, no se habría casado, sino que hubiera tenido un amante.
 
 Erdosain le preguntó:
 
--¿En serio decís eso?
+–¿En serio decís eso?
 
 De la otra cama, terca, Elsa respondió:
 
--Sí, hombre, tendría un amante... ¿para qué casarse?...
+–Sí, hombre, tendría un amante... ¿para qué casarse?...
 
 Fenómeno curioso: Erdosain tuvo súbitamente la sensación del silencio de la muer­te, un silencio paralelo como un féretro a su cuerpo horizontal. Posiblemente en aquel instan­te, en él se destruyó todo el amor inconsciente que el hombre siente por una mujer, y luego le permitirá afrontar situaciones terribles, que serían insoportables de no haber sucedido previa­mente aquel fenómeno. Le parecía ahora encontrarse en el fondo de un sepulcro, pensó que jamás vería la luz, y en ese silencio liviano y negro que colmaba la habitación se movían los fantasmas despertados por la voz de su esposa.
 
@@ -43,57 +41,57 @@ Más tarde, explicando esos momentos, recordó que se mantenía inmóvil, en la 
 
 Su corazón latía pesadamente. Parecíale que cada sístole diástole tenía que vencer la presión de una elástica masa de fango. Y era inútil que desde allí él intentara mover las manos para alcanzar el sol que estaba más arriba. Y la voz de la esposa repetía aún en sus oídos:
 
--No me hubiera casado. Tendría un amante.
+–No me hubiera casado. Tendría un amante.
 
 Y esas palabras, que para ser pronunciadas no habían requerido sino el espacio de dos segundos de tiempo, estarían ahora resonando toda la vida en él. Cerró los ojos. Las palabras estarían toda la vida en él, arraigadas en su entraña como un crecimiento de carne. Y sus dientes rechinaron. Quería sufrir más aún, agotarse de dolor, desangrarse en un lento chorrear de angustia. Y con las manos pegadas a los muslos, tieso como un muerto en su ataúd, sin volver la cabeza, reteniendo el galope de su respiración, preguntó con voz sibilan­te:
 
--¿Y lo hubieras querido?
+–¿Y lo hubieras querido?
 
--¿Para qué?... ¡Quién sabe!... Sí; si era bueno, ¿por qué no?
+–¿Para qué?... ¡Quién sabe!... Sí; si era bueno, ¿por qué no?
 
--¿Y dónde se hubieran visto? Porque en tu casa no iban a tolerar eso.
+–¿Y dónde se hubieran visto? Porque en tu casa no iban a tolerar eso.
 
--En algún hotel.
+–En algún hotel.
 
--¡Ah!
+–¡Ah!
 
 Callaron, pero ya Erdosain la veía en la firme desdicha de su vida, avanzar por la acera de una calle empedrada con lascas de río. Ella se adelantaba por la ancha vereda. Un tul oscuro le cubría la mitad del semblante, y encaminándose hacia el lugar donde la conducía el deliberado deseo, avanzaba con rápidos y seguros pasos. Y deseoso de martirizar aún lo poco de esperanza que le quedaba, Erdosain continuó, con una sonrisa falsa que ella no podía distinguir en la oscuridad, y la voz suave, para que Elsa no reparara en el furor que estreme­cía sus labios:
 
--¿Ves? Así es lindo, en un matrimonio, poder hablar de todo con una confianza de hermanos. Y, decíme, ¿te hubieras desnudado ante él?
+–¿Ves? Así es lindo, en un matrimonio, poder hablar de todo con una confianza de hermanos. Y, decime, ¿te hubieras desnudado ante él?
 
--¡No digas estupideces!
+–¡No digas estupideces!
 
--No; decíme: ¿te hubieras desnudado?
+–No; decime: ¿te hubieras desnudado?
 
--¡Y... claro! ¡No me iba a estar vestida!
+–¡Y... claro! ¡No me iba a estar vestida!
 
 Si de un hachazo le hubieran partido la columna vertebral, no quedaría más rígido. La garganta se le resecó como si por ella entrara un viento de fuego. Su corazón apenas latía; por sobre los sesos sintió correr una neblina que se le escapaba por los ojos. Caía en el silencio y la oscuridad, se sumergía en la nada por un muelle descendimiento, mientras que la firme parálisis de su carne cúbica subsistía para que la sensación de la pena se estampara más profundamente. Calló, y, sin embargo, él hubiera querido sollozar, arrodillarse ante alguien, levantarse en ese instante, vestirse e ir a dormir en el atrio de alguna casa, en el umbral de una ciudad desconocida.
 
 Enloquecido, gritó Erdosain:
 
--¿Pero te das cuenta... te das cuenta de lo horrible de esto, de lo espantoso que me has dicho? ¡Yo debía matarte! ¡Sos una perra! ¡Yo debía matarte, sí, matarte! ¿Te das cuenta?
+–¿Pero te das cuenta... te das cuenta de lo horrible de esto, de lo espantoso que me has dicho? ¡Yo debía matarte! ¡Sos una perra! ¡Yo debía matarte, sí, matarte! ¿Te das cuenta?
 
--¡Pero qué te pasa! ¿Estás loco?
+–¡Pero qué te pasa! ¿Estás loco?
 
--Vos has deshecho mi vida. Ahora sé por qué no te me entregabas, ¡y me has obliga­do a masturbarme! ¡Sí, a eso! Me has hecho un trapo de hombre. Debía matarte. El primero que venga podrá escupirme en la cara. ¿Te das cuenta? Y mientras yo robo y estafo, y sufro por vos, vos... sí, vos estás pensando en eso. ¡En que te hubieras entregado a un hombre bueno! ¿Pero te das cuenta? ¡Un hombre bueno! ¡Así, un hombre bueno!
+–Vos has deshecho mi vida. Ahora sé por qué no te me entregabas, ¡y me has obliga­do a masturbarme! ¡Sí, a eso! Me has hecho un trapo de hombre. Debía matarte. El primero que venga podrá escupirme en la cara. ¿Te das cuenta? Y mientras yo robo y estafo, y sufro por vos, vos... sí, vos estás pensando en eso. ¡En que te hubieras entregado a un hombre bueno! ¿Pero te das cuenta? ¡Un hombre bueno! ¡Así, un hombre bueno!
 
--¿Pero estás loco?
+–¿Pero estás loco?
 
 Rápidamente se vestía Erdosain.
 
--¿Dónde vas?
+–¿Dónde vas?
 
 Echóse a cuestas el sobretodo; después inclinándose sobre la cama de la mujer, ex­clamó:
 
--¿Sabes adonde voy? A un prostíbulo, a buscarme una sífilis.
+–¿Sabés adonde voy? A un prostíbulo, a buscarme una sífilis.
 
 
 
-INGENUIDAD E IDIOTISMO
+## Ingenuidad e idiotismo
 
 El cronista de esta historia no se atreve a definirlo a Erdosain, tan numerosas fueron las desdichas de su vida, que los desastres que más tarde provocó en compañía del Astrólogo pueden explicarse por los procesos psíquicos sufridos durante su matrimonio.
 
-Aún hoy, cuando releo las confesiones de Erdosain, paréceme inverosímil haber asistido a tan siniestros desenvolvimientos de impudor y de angustia.
+Aún hoy, cuando releo las confesiones de Erdosain, me parece inverosímil haber asistido a tan siniestros desenvolvimientos de impudor y de angustia.
 
 Me acuerdo. Durante aquellos tres días en que estuvo refugiado en mi casa, lo confe­só todo.
 
@@ -109,44 +107,44 @@ Impasiblemente amontonaba inquietud sobre iniquidad. Sabía que iba a morir, que
 
 Había enflaquecido extraordinariamente en pocos días. La piel amarilla, pegada a los huesos planos del rostro, le daba la apariencia de un tísico. Más tarde la autopsia reveló que estaba ya avanzada la enfermedad en él.
 
-Decíame la segunda tarde de encontrarse en mi casa:
+Me decía la segunda tarde de encontrarse en mi casa:
 
--Antes de casarme, yo pensaba con horror en la fornicación. En mi concepto, un hombre no se casaba sino para estar siempre junto a su mujer y gozar la alegría de verse a todas horas; y hablarse, quererse con los ojos, con las palabras y las sonrisas. Cierto es que yo era joven entonces, pero cuando fui novio de Elsa sentí necesidad de renovar todas estas cosas.
+–Antes de casarme, yo pensaba con horror en la fornicación. En mi concepto, un hombre no se casaba sino para estar siempre junto a su mujer y gozar la alegría de verse a todas horas; y hablarse, quererse con los ojos, con las palabras y las sonrisas. Cierto es que yo era joven entonces, pero cuando fui novio de Elsa sentí necesidad de renovar todas estas cosas.
 
 Hablaba.
 
 Erdosain jamás besó a Elsa, porque era feliz dejando que le apretara la garganta el vértigo de quererla y porque además creía que «a una señorita no debe besársela». Y confun­día con espiritualidad lo que en sí no era más que un apetecimiento de su carne.
 
--Tampoco nos tuteábamos, porque me era agradable era distancia que interponía entre nosotros el usted. Además yo creía que a una señorita no se la tutea. No se ría. En mi concepto, la «señorita» era la auténtica expresión de pureza, perfección y candidez. A su lado yo no conocí el deseo, sino la inquietud de un arrobamiento delicioso que me llenaba de lágrimas los ojos. Y era feliz porque amaba con sufrimiento, ignorando el fin de mi deseo, y porque creía que era amor espiritual toda esa convulsión orgánica y terrible que me postraba dichoso ante la quieta mirada de ella, una mirada limpia que me penetraba con lentitud las subcapas más estremecidas del espíritu.
+–Tampoco nos tuteábamos, porque me era agradable esa distancia que interponía entre nosotros el usted. Además yo creía que a una señorita no se la tutea. No se ría. En mi concepto, la «señorita» era la auténtica expresión de pureza, perfección y candidez. A su lado yo no conocí el deseo, sino la inquietud de un arrobamiento delicioso que me llenaba de lágrimas los ojos. Y era feliz porque amaba con sufrimiento, ignorando el fin de mi deseo, y porque creía que era amor espiritual toda esa convulsión orgánica y terrible que me postraba dichoso ante la quieta mirada de ella, una mirada limpia que me penetraba con lentitud las subcapas más estremecidas del espíritu.
 
-En tanto hablaba, yo lo miraba a Erdosain. ¡El era un asesino, un asesino, y hablaba de matices del sentimiento absurdo! Continuaba:
+En tanto hablaba, yo lo miraba a Erdosain. ¡Él era un asesino, un asesino, y hablaba de matices del sentimiento absurdo! Continuaba:
 
--Y la noche del día que nos casamos, ya solos en la pieza del hotel, ella se desnudó con naturalidad frente a la lámpara encendida. Ruborizado hasta las sienes, yo volví la cabe­za para no mirarla y que no descubriera mi vergüenza. Luego me quité el cuello, el saco y los botines y me pues bajo las sábanas con los pantalones puestos. Sobre la almohada, entre sus rizos negros, ella volvió el rostro y dijo sonriendo con una risa extraña:
+–Y la noche del día que nos casamos, ya solos en la pieza del hotel, ella se desnudó con naturalidad frente a la lámpara encendida. Ruborizado hasta las sienes, yo volví la cabe­za para no mirarla y que no descubriera mi vergüenza. Luego me quité el cuello, el saco y los botines y me puse bajo las sábanas con los pantalones puestos. Sobre la almohada, entre sus rizos negros, ella volvió el rostro y dijo sonriendo con una risa extraña:
 
--¿No tenes miedo de que se te arruguen? Sácatelos, zoncito.
+–¿No tenés miedo de que se te arruguen? Sacátelos, zoncito.
 
 Más tarde, una distancia misteriosa la separó a Elsa de Erdosain. Se entregaba a él, pero con repugnancia, defraudada quién sabe en qué. Y él se arrodillaba a la cabecera de su cama, y le suplicaba que se le diera un instante, mas la mujer, con voz sorda de impaciencia, le respondía casi gritando:
 
--¡Déjame tranquila! ¿No ves que me das asco?
+–¡Déjame tranquila! ¿No ves que me das asco?
 
 Refrenando un terror de catástrofe, Erdosain se hundía otra vez en su cama.
 
--No me acostaba, sino que permanecía sentado, casi apoyada la espalda en la almo­hada, mirando las tinieblas. Yo sabía que no había ningún objeto en estar mirando las tinie­blas, pero me imaginaba que ella, compadecida de verme así, abandonado en la oscuridad, terminaría por apiadarse y decirme: «Bueno, vení si queras». Pero nunca, nunca, me dijo esas palabras, hasta que una noche le grité desesperado:
+–No me acostaba, sino que permanecía sentado, casi apoyada la espalda en la almo­hada, mirando las tinieblas. Yo sabía que no había ningún objeto en estar mirando las tinie­blas, pero me imaginaba que ella, compadecida de verme así, abandonado en la oscuridad, terminaría por apiadarse y decirme: «Bueno, vení si querés». Pero nunca, nunca, me dijo esas palabras, hasta que una noche le grité desesperado:
 
--¿Pero vos qué te pensás... que voy a estar masturbándome siempre?
+–¿Pero vos qué te pensás... que voy a estar masturbándome siempre?
 
 Y entonces ella, serenamente, me contestó:
 
--Es inútil: yo no debía haberme casado con vos.
+–Es inútil: yo no debía haberme casado con vos.
 
 
 ## La casa negra
 
-Y apareció en él la angustia, pero tan poderosa, que de pronto Erdosain se tomaba la cabeza enloquecido de un dolor físico. Parecíale que la masa encefálica se le había despren­dido del cráneo y que chocaba con las paredes de éste al movimiento de la menor idea.
+Y apareció en él la angustia, pero tan poderosa, que de pronto Erdosain se tomaba la cabeza enloquecido de un dolor físico. Le parecía que la masa encefálica se le había despren­dido del cráneo y que chocaba con las paredes de éste al movimiento de la menor idea.
 
 Sabía que estaba irremisiblemente perdido, desterrado de la posible felicidad que siempre, algún día, sonría en la mejilla más pálida: comprendía que el destino lo abortó al caos de esa espantosa multitud de hombres huraños que manchan la vida con sus estampas agobiadas por todos los vicios y sufrimientos.
 
-El ya no tenía ninguna esperanza, y su miedo de vivir se hacía más poderoso cuando pensaba que jamás tendría ilusiones, cuando obstinadamente fijos los ojos en un rincón de la estancia, reconocía que le era indiferente trabajar de lavaplatos en una fonda o de criado en un prostíbulo.
+Él ya no tenía ninguna esperanza, y su miedo de vivir se hacía más poderoso cuando pensaba que jamás tendría ilusiones, cuando obstinadamente fijos los ojos en un rincón de la estancia, reconocía que le era indiferente trabajar de lavaplatos en una fonda o de criado en un prostíbulo.
 
 ¡Qué le importaba! La angustia lo niveló para el seno de una multitud silenciosa de hombres terribles que durante el día arrastran su miseria vendiendo artefactos o biblias, reco­rriendo al anochecer los urinarios donde exhiben sus órganos genitales a los mozalbetes que entran a los mingitorios acuciados por otras ansiedades semejantes.
 
