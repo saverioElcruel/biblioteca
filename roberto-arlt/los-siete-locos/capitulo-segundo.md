@@ -97,9 +97,9 @@ Me acuerdo. Durante aquellos tres días en que estuvo refugiado en mi casa, lo c
 
 Nos reuníamos en una pieza enorme y vacía de muebles, donde poca luz llegaba.
 
-Erdosain quedábase sentado en el borde de una silla, la espalda arqueada, los codos apoyados en las piernas, las mejillas enrejadas por los dedos, la mirada fija en el pavimento.
+Erdosain se quedaba sentado en el borde de una silla, la espalda arqueada, los codos apoyados en las piernas, las mejillas enrejadas por los dedos, la mirada fija en el pavimento.
 
-Hablaba sordamente, sin interrupciones, como si recitara una lección grabada al frío por infinitas atmósferas de presión, en el plano de su conciencia oscura. El tono de su voz, cuáles fueran los acontecimientos, era parejo, isócrono metódico, como el del engranaje de un reloj.
+Hablaba sordamente, sin interrupciones, como si recitara una lección grabada al frío por infinitas atmósferas de presión, en el plano de su conciencia oscura. El tono de su voz, cuales fueran los acontecimientos, era parejo, isócrono metódico, como el del engranaje de un reloj.
 
 Si se le interrumpía no se irritaba, sino que recomenzaba el relato, agregando los detalles pedidos, siempre con la cabeza inclinada, los ojos fijos en el suelo, los codos apoya­dos en las rodillas. Narraba con lentitud derivada de un exceso de atención, para no originar confusiones.
 
@@ -142,7 +142,7 @@ Y entonces ella, serenamente, me contestó:
 
 Y apareció en él la angustia, pero tan poderosa, que de pronto Erdosain se tomaba la cabeza enloquecido de un dolor físico. Le parecía que la masa encefálica se le había despren­dido del cráneo y que chocaba con las paredes de éste al movimiento de la menor idea.
 
-Sabía que estaba irremisiblemente perdido, desterrado de la posible felicidad que siempre, algún día, sonría en la mejilla más pálida: comprendía que el destino lo abortó al caos de esa espantosa multitud de hombres huraños que manchan la vida con sus estampas agobiadas por todos los vicios y sufrimientos.
+Sabía que estaba irremisiblemente perdido, desterrado de la posible felicidad que siempre, algún día, sonríe en la mejilla más pálida: comprendía que el destino lo abortó al caos de esa espantosa multitud de hombres huraños que manchan la vida con sus estampas agobiadas por todos los vicios y sufrimientos.
 
 Él ya no tenía ninguna esperanza, y su miedo de vivir se hacía más poderoso cuando pensaba que jamás tendría ilusiones, cuando obstinadamente fijos los ojos en un rincón de la estancia, reconocía que le era indiferente trabajar de lavaplatos en una fonda o de criado en un prostíbulo.
 
@@ -160,7 +160,7 @@ Porque él no le dio a su carne, que tan poco tiempo viviría, ni un traje decen
 
 Y muchas veces se decía:
 
--¿Qué he hecho yo por la felicidad de este desdichado cuerpo mío?
+–¿Qué he hecho yo por la felicidad de este desdichado cuerpo mío?
 
 Porque lo cierto es que se sentía en circunstancias tan ajeno a él, como el vino del tonel que lo contiene.
 
@@ -168,9 +168,7 @@ Luego recaía que ese cuerpo era el que envasaba sus cavilaciones, las nutría c
 
 Erdosain se sentía apiadado, entristecido hacia su doble físico, del que era casi un extraño.
 
-Entonces, como un desesperado que se arroja desde un séptimo piso, él se arrojaba en el delicioso terror de la masturbación, queriendo aniquilar sus remordimientos en un mun­do del que nadie podía expulsarlo, rodeándose de las delicias que estaban alejadas de su vida,
-
-de todos los cuerpos más distintos y hermosos, para los que se necesitarían una suma inmen­sa de existencias y dinero para gozar.
+Entonces, como un desesperado que se arroja desde un séptimo piso, él se arrojaba en el delicioso terror de la masturbación, queriendo aniquilar sus remordimientos en un mun­do del que nadie podía expulsarlo, rodeándose de las delicias que estaban alejadas de su vida, de todos los cuerpos más distintos y hermosos, para los que se necesitarían una suma inmen­sa de existencias y dinero para gozar.
 
 Era aquél un universo de ideas gelatinosas, roto en pasadizos donde la obscenidad se vestía con las sedas y puntillas y terciopelos y guipures más costosos; un mundo resplande­ciente en su pulpa crepuscular. Transitaban en él las mujeres más hermosas de la creación, desconocidas tersas que por él descubrían sus senos de manzana, ofreciendo a su boca, agriada por innobles cigarrillos, labios fraganciosos y palabras pesadas de sensualidad.
 
@@ -184,7 +182,7 @@ El deseo zumbaba como un tábano en sus oídos, pero nadie lo podía arrancar ya
 
 Era esta oscuridad una casa familiar en la que perdía súbitamente las nociones del vivir común. Allí, en la casa negra, le eran habituales los placeres terribles, que de haberlos sospechado en la existencia de otro hombre le habrían separado para siempre de él.
 
-Aunque esta casa negra estaba en Erdosain, entraba en ella haciendo singulares ro­deos, tortuosas maniobras, y una vez traspuesto el umbral sabía que era inútil retroceder, porque por los corredores de la casa negra, por un exclusivo corredor siempre enfardado de sombras, avanzaba a su encuentro, con pies ligeros, la mujer que un día en la vereda, en un tranvía o en una casa, le había envarado de deseo.
+Aunque esta casa negra estaba en Erdosain, entraba en ella haciendo singulares ro­deos, tortuosas maniobras, y una vez traspuesto el umbral sabía que era inútil retroceder, porque por los corredores de la casa negra, por un exclusivo corredor siempre enfardado de sombras, avanzaba a su encuentro, con pies ligeros, la mujer que un día en la vereda, en un tranvía o en una casa, lo había envarado de deseo.
 
 Como quien saca de su cartera un dinero que es producto de distintos esfuerzos, Erdosain sacaba de las alcobas de la casa negra una mujer fragmentaria y completa, una mujer compuesta por cien mujeres despedazadas por los cien deseos siempre iguales, renova­dos a la presencia de semejantes mujeres.
 
@@ -192,13 +190,11 @@ Porque ésta tenía las rodillas de una muchacha a quien el viento soslayaba la 
 
 Esta mujer arbitraria, amasada con la carnadura de todas las mujeres que no había podido poseer, tenía con él esas complacencias que tienen las novias prudentes que ya han dejado las manos en las entrepiernas de sus novios sin dejar por ello de ser honestas. Iba hacia él. Tenía las nalgas contenidas por una faja ortopédica, que dejaba libres sus senos ligeramente combados, y sus modales eran irreprochables como los de una señorita educada que sabe razonar, lo cual no le impide dejar que su novio pierda los dedos en el corpiño entreabierto por un olvido.
 
-Luego caía en los abismos de la casa negra. ¡La casa negra! Erdosain, de aquellos tiempos conservaba un recuerdo abominable; tenía la sensación de que había vivido en el interior de un infierno, cuyo contenido diabólico lo acompañaba a través de los días, y aun a pocos de los de su muerte, perseguido por la justicia. Cuando volcaba su memoria hacia
-
-aquella época se exaltaba sobriamente, una llama roja brillaba ante sus ojos, y tal era su doloroso furor, que hubiera querido de un salto llegar hasta más allá de las estrellas, quemar­se en una hoguera que limpiara su presente de todo aquel terrible pasado, persistente e inevi­table.
+Luego caía en los abismos de la casa negra. ¡La casa negra! Erdosain, de aquellos tiempos conservaba un recuerdo abominable; tenía la sensación de que había vivido en el interior de un infierno, cuyo contenido diabólico lo acompañaba a través de los días, y aun a pocos de los de su muerte, perseguido por la justicia. Cuando volcaba su memoria hacia aquella época se exaltaba sobriamente, una llama roja brillaba ante sus ojos, y tal era su doloroso furor, que hubiera querido de un salto llegar hasta más allá de las estrellas, quemar­se en una hoguera que limpiara su presente de todo aquel terrible pasado, persistente e inevi­table.
 
 ¡La casa negra! Aún me parece tener ante los ojos el semblante enrigecido del hom­bre taciturno, que de pronto levantaba la cabeza hacia el cielorraso, luego bajaba los ojos hasta ponerlos a la altura de los míos y sonriendo fríamente, agregaba:
 
--Vaya, dígales a los hombres lo que es la casa negra. Y que yo era un asesino. Y sin embargo yo, el asesino, he amado todas las bellezas y he luchado en mí mismo contra todas las horribles tentaciones que hora tras hora subían de mis entrañas. He sufrido por mí, y por los otros, ¿se da cuenta?, también por los otros...
+–Vaya, dígales a los hombres lo que es la casa negra. Y que yo era un asesino. Y sin embargo yo, el asesino, he amado todas las bellezas y he luchado en mí mismo contra todas las horribles tentaciones que hora tras hora subían de mis entrañas. He sufrido por mí, y por los otros, ¿se da cuenta?, también por los otros...
 
 
 ## La circular
@@ -213,97 +209,95 @@ Así, no bien hubo recibido la carta, se dirigió a la casa de Barsut. Este viv�
 
 Llegó atardecido a la casa del otro. Precisamente estaba Gregorio afeitándose cuan­do entró Erdosain a su pieza. Barsut se detuvo pálido, con la navaja sobre la mejilla, luego mirándolo de pies a cabeza a Erdosain, exclamó:
 
--¿Qué es lo que querés vos aquí?
+–¿Qué es lo que querés vos aquí?
 
-«Otro se hubiera indignado -comentaba más tarde Erdosain-. Yo le miré sonriendo 'amistosamente', porque me sentía amigo de él en aquellos momentos, y sin decir palabras le alcancé la carta del Ministerio de Guerra. Una alegría inexplicable me mantenía inquieto, recuerdo que estuve un minuto sentado en la orilla de su cama, luego me levanté poniéndome a pasear nerviosamente por la pieza».
+«Otro se hubiera indignado –comentaba más tarde Erdosain–. Yo lo miré sonriendo 'amistosamente', porque me sentía amigo de él en aquellos momentos, y sin decir palabras le alcancé la carta del Ministerio de Guerra. Una alegría inexplicable me mantenía inquieto, recuerdo que estuve un minuto sentado en la orilla de su cama, luego me levanté poniéndome a pasear nerviosamente por la pieza».
 
--Así que está en Témperley. ¿Y vos querés que vayamos a buscarla?
+–Así que está en Témperley. ¿Y vos querés que vayamos a buscarla?
 
--Sí, eso es lo que quiero. Y que vos vayas a buscarla.
+–Sí, eso es lo que quiero. Y que vos vayas a buscarla.
 
 Barsut murmuró algo que Erdosain no entendió, luego con las manos empezó a friccionarse los músculos de los brazos y la epidermis se sonrojó suavemente. Iba a afeitarse los bigotes, sostuvo la navaja en el aire y volviendo la cabeza, dijo:
 
--¿Sabes? Creí que nunca tendrías el coraje de visitarme.
+–¿Sabés? Creí que nunca tendrías el coraje de visitarme.
 
 Erdosain sostuvo la estriada mirada verde, realmente aquel hombre tenía la faz de un tigre, y después de cruzarse de brazos, arguyó:
 
--Es cierto, yo también creía eso, pero ya vez, las cosas cambian...
+–Es cierto, yo también creía eso, pero ya vez, las cosas cambian...
 
--¿Tenes miedo de ir vos solo?
+–¿Tenés miedo de ir vos solo?
 
--No, lo que tengo es interés de verte a vos en la aventura...
+–No, lo que tengo es interés de verte a vos en la aventura...
 
 Barsut apretó los dientes. Con el mentón empapado de espuma jabonosa y la frente arrugada poderosamente consideró a Erdosain y terminó por decir:
 
--Mirá, yo me creía un canalla, pero creo que vos... vos sos peor que yo. En fin, que sea lo que Dios quiera.
+–Mirá, yo me creía un canalla, pero creo que vos... vos sos peor que yo. En fin, que sea lo que Dios quiera.
 
--¿Por qué decís que sea lo que Dios quiera?
+–¿Por qué decís que sea lo que Dios quiera?
 
 Barsut se detuvo frente al espejo, apoyó los puños en la cintura, y lo que dijo no le sorprendió a Erdosain, que con el semblante sereno escuchó estas palabras:
 
--¿Quién me dice que esta circular no esté falsificada y que vos me tiendas una «cama» para asesinarme?
+–¿Quién me dice que esta circular no esté falsificada y que vos me tiendas una «cama» para asesinarme?
 
-«¡Qué curiosa es el alma del hombre! -comentaba luego Erdosain-. Yo escuché esas palabras y ni un solo músculo del semblante se me alteró. ¿Cómo Gregorio había adivinado la verdad? No lo sé. ¿O es que él tenía también la mala imaginación mía?»
+«¡Qué curiosa es el alma del hombre! –comentaba luego Erdosain–. Yo escuché esas palabras y ni un solo músculo del semblante se me alteró. ¿Cómo Gregorio había adivinado la verdad? No lo sé. ¿O es que él tenía también la mala imaginación mía?»
 
 Encendió un cigarrillo y le contestó estas únicas palabras:
 
--Hacé lo que quieras.
+–Hacé lo que quieras.
 
 Pero Barsut, que estaba en vena de conversar, repuso:
 
--¿Pero por qué no? Decíme: ¿Por qué no? ¿Qué tendría de extraño que vos me qui­sieras matar? Es lógico. Te quise robar la mujer, te denuncié, te di una paliza, ¡qué diablos!, tendrías que ser un santo para que no tuvieras ganas de matarme.
+–¿Pero por qué no? Decíme: ¿Por qué no? ¿Qué tendría de extraño que vos me qui­sieras matar? Es lógico. Te quise robar la mujer, te denuncié, te di una paliza, ¡qué diablos!, tendrías que ser un santo para que no tuvieras ganas de matarme.
 
--¿Un santo? No, m'hijo, no lo soy. Pero te juro que mañana no te mataré. Algún día sí, pero mañana no.
+–¿Un santo? No, m'hijo, no lo soy. Pero te juro que mañana no te mataré. Algún día sí, pero mañana no.
 
 Barsut se echó a reír alegremente.
 
--¿Sabes que sos notable, Remo? Algún día me matarás. ¡Qué curioso! ¿Sabes lo que me interesa de todo eso? La cara que pondrás al matarme. Decíme, ¿vas a estar serio o te vas a reír?
+–¿Sabés que sos notable, Remo? Algún día me matarás. ¡Qué curioso! ¿Sabés lo que me interesa de todo eso? La cara que pondrás al matarme. Decíme, ¿vas a estar serio o te vas a reír?
 
 Las preguntas habían sido hechas con gravedad amistosa.
 
--Posiblemente esté serio. No sé. Creo que sí. Vos comprenderás que matarlo a otro no es juguete.
+–Posiblemente esté serio. No sé. Creo que sí. Vos comprenderás que matarlo a otro no es juguete.
 
--¿Y no tenes miedo a la cárcel?
+–¿Y no tenes miedo a la cárcel?
 
--No, ya que si te matara tomaría antes mis precauciones, y tu cadáver lo destruiría con ácido sulfúrico.
+–No, ya que si te matara tomaría antes mis precauciones, y tu cadáver lo destruiría con ácido sulfúrico.
 
--Sos un bárbaro... A propósito, yo tengo una memoria más floja: ¿pagaste en la Azucarera?
+–Sos un bárbaro... A propósito, yo tengo una memoria más floja: ¿pagaste en la Azucarera?
 
--Sí.
+–Sí.
 
--¿Quién te dio el dinero?
+–¿Quién te dio el dinero?
 
--Un rufián.
+–Un rufián.
 
--Tenes pocos amigos, pero buenos... Entonces, ¿a qué hora me vas a venir a buscar mañana?
+–Tenes pocos amigos, pero buenos... Entonces, ¿a qué hora me vas a venir a buscar mañana?
 
--A las ocho va ese hombre al comando... así es que...
+–A las ocho va ese hombre al comando... así es que...
 
--Mirá, no termino de creer que sea cierto, pero si Elsa está allá le voy a dar tantos sopapos que te prevengo que tendrán que pasar muchos años para que se los olvide.
+–Mirá, no termino de creer que sea cierto, pero si Elsa está allá le voy a dar tantos sopapos que te prevengo que tendrán que pasar muchos años para que se los olvide.
 
 Cuando Erdosain salió se dirigió a una ofici­na de correos y le hizo un telegrama al Astrólogo.
 
 
 
-## trabajo de la angustia
+## Trabajo de la angustia
 
 Esa noche no durmió. Estaba sumamente cansado. Tampoco pensaba en nada. Pre­tendió darme una definición de aquel estado con estos términos:
 
--El alma está como si se hubiera salido medio metro del cuerpo. Un aniquilamiento muscular extraordinario, una ansiedad que no termina nunca. Usted cierra los ojos y parece que el cuerpo se disuelve en la nada, de pronto se recuerda un detalle perdido, entre los millares de días que ha vivido; no cometa usted nunca un crimen, porque eso más que horri­ble es triste. Usted siente que va cortando una tras otra las amarras que lo ataban a la civiliza­ción, que va a entrar en el oscuro mundo de la barbarie, que perderá el timón, se dice y eso también se lo dije al Astrólogo, que provenía de una falta de training en la delincuencia, pero no es eso, no. En realidad, usted quisiera vivir como los demás, ser honrado como los demás, tener un hogar, una mujer, asomarse a la ventana para mirar los transeúntes que pasan, y sin embargo, ya no hay una sola célula de su organismo que no esté impregnada de la fatalidad que encierran esas palabras: tengo que matarlo. Usted dirá que razono mi odio. Cómo no razonarlo. Si tengo la impresión de que vivo soñando. Hasta me doy cuenta de que hablo tanto para convencerme de que no estoy muerto, no por lo sucedido sino por el estado en que lo deja un hecho así. Es igual que la piel después de una quemadura. Se cura, ¿pero vio usted cómo queda?, arrugada, seca, tensa, brillante. Así le queda el alma a uno. Y el brillo que a momentos se refleja le quema los ojos. Y las arrugas que tiene le repugnan. Usted sabe que lleva en su interior un monstruo que en cualquier momento se desatará y no sabe en qué dirección.
+–El alma está como si se hubiera salido medio metro del cuerpo. Un aniquilamiento muscular extraordinario, una ansiedad que no termina nunca. Usted cierra los ojos y parece que el cuerpo se disuelve en la nada, de pronto se recuerda un detalle perdido, entre los millares de días que ha vivido; no cometa usted nunca un crimen, porque eso más que horri­ble es triste. Usted siente que va cortando una tras otra las amarras que lo ataban a la civiliza­ción, que va a entrar en el oscuro mundo de la barbarie, que perderá el timón, se dice y eso también se lo dije al Astrólogo, que provenía de una falta de training en la delincuencia, pero no es eso, no. En realidad, usted quisiera vivir como los demás, ser honrado como los demás, tener un hogar, una mujer, asomarse a la ventana para mirar los transeúntes que pasan, y sin embargo, ya no hay una sola célula de su organismo que no esté impregnada de la fatalidad que encierran esas palabras: tengo que matarlo. Usted dirá que razono mi odio. Cómo no razonarlo. Si tengo la impresión de que vivo soñando. Hasta me doy cuenta de que hablo tanto para convencerme de que no estoy muerto, no por lo sucedido sino por el estado en que lo deja un hecho así. Es igual que la piel después de una quemadura. Se cura, ¿pero vio usted cómo queda?, arrugada, seca, tensa, brillante. Así le queda el alma a uno. Y el brillo que a momentos se refleja le quema los ojos. Y las arrugas que tiene le repugnan. Usted sabe que lleva en su interior un monstruo que en cualquier momento se desatará y no sabe en qué dirección.
 
 «¡Un monstruo! Muchas veces me quedé pensando en eso. Un monstruo calmoso, elástico, indescifrable, que lo sorprenderá a usted mismo con la violencia de sus impulsos, con las oblicuas satánicas que descubre en los recovecos de la vida y que le permiten discer­nir infamias desde todos los ángulos. ¡Cuántas veces me he detenido en mí mismo, en el misterio de mí mismo y envidiaba la vida del hombre más humilde! ¡Ah!, no cometa nunca un crimen. Véame a mí cómo estoy. Y me confieso con usted porque sí, quizá porque usted me comprende...
 
-«¿Y la noche?... Llegué tarde a casa. Me tiré vestido encima de la cama. La emoción que puede experimentar un jugador la sentía yo en los afanosos latidos de mi corazón. En realidad no pensaba en los sucesos posteriores al delito, sino que mantenía al borde del mis­mo la curiosidad de saber cómo me comportaría, qué es lo que haría Barsut, de qué forma lo secuestraría el Astrólogo, y el crimen que en algunas novelas había leído se presentaba inte­resante; veía yo ahora que era algo mecánico, que cometer un crimen es sencillo, y que nos parece complicado a nosotros debido a que carecemos de la costumbre de él.
+«¿Y la noche?... Llegué tarde a casa. Me tiré vestido encima de la cama. La emoción que puede experimentar un jugador la sentía yo en los afanosos latidos de mi corazón. En realidad no pensaba en los sucesos posteriores al delito, sino que mantenía al borde del mis­mo la curiosidad de saber cómo me comportaría, qué es lo que haría Barsut, de qué forma lo secuestraría el Astrólogo, y el crimen que en algunas novelas había leído se presentaba interesante; veía yo ahora que era algo mecánico, que cometer un crimen es sencillo, y que nos parece complicado a nosotros debido a que carecemos de la costumbre de él.
 
-«Tan es así que recuerdo que me quedé acostado con la mirada fija en un ángulo de la pieza a oscuras. Pedazos de antigua existencia, pero inconexos, pasaban como empujados por un viento, ante mis ojos. Nunca llegué a explicarme el misterioso mecanismo del recuer­do, que hace que en las circunstancias excepcionales de nuestra vida, de pronto adquiera una importancia casi extraordinaria el detalle insignificante y la imagen que durante años y años
-
-ha estado cubierta en nuestra memoria por el presente de la vida. Ignorábamos que existían aquellas fotografías interiores y de pronto el espeso velo que las cubre se rompe, y así, esa noche, en vez de pensar en Barsut me dejé estar allí, en ese triste cuarto de pensión, en la actitud de un hombre que espera la llegada de algo, de ese algo de que he hablado tantas veces, y que a mi modo de ver debía darle un giro inesperado a mi vida, destruir por completo el pasado, revelarme a mí mismo un hombre absolutamente distinto de lo que yo era.
+«Tan es así que recuerdo que me quedé acostado con la mirada fija en un ángulo de la pieza a oscuras. Pedazos de antigua existencia, pero inconexos, pasaban como empujados por un viento, ante mis ojos. Nunca llegué a explicarme el misterioso mecanismo del recuer­do, que hace que en las circunstancias excepcionales de nuestra vida, de pronto adquiera una importancia casi extraordinaria el detalle insignificante y la imagen que durante años y años ha estado cubierta en nuestra memoria por el presente de la vida. Ignorábamos que existían aquellas fotografías interiores y de pronto el espeso velo que las cubre se rompe, y así, esa noche, en vez de pensar en Barsut me dejé estar allí, en ese triste cuarto de pensión, en la actitud de un hombre que espera la llegada de algo, de ese algo de que he hablado tantas veces, y que a mi modo de ver debía darle un giro inesperado a mi vida, destruir por completo el pasado, revelarme a mí mismo un hombre absolutamente distinto de lo que yo era.
 
 «En realidad, el crimen no me preocupaba mucho, sino otra curiosidad: ¿de qué forma me manifestaría después del crimen? ¿Sufriría remordimientos? ¿Enloquecería, ter­minaría por irme a denunciar? ¿O sencillamente viviría como hasta el presente, adolorido de esa impotencia singular que le daba a todos los actos de mi vida una incoherencia que ahora usted dice son los síntomas de mi locura?
 
 «Lo curioso es que a momentos sentía grandes impulsos de alegría, deseos de reírme para simular un paroxismo de locura que no existía en mí; mas quebrantado el impulso trataba de figurarme de qué forma lo secuestraríamos a Barsut. Estaba seguro de que se defendería, pero el Astrólogo no era hombre de intervenir sin previsión en una empresa. Otras veces me planteaba el problema mediante qué forma Barsut había adivinado que la circular del Ministerio de Guerra estaba falsificada y me admiraba de haber conseguido aquella perfecta presencia de espíritu, cuando volviendo hacia mí la cara jabonada, dijo casi irónicamente:
 
-«-Mirá qué curioso si la circular estuviera falsificada.
+«–Mirá qué curioso si la circular estuviera falsificada.
 
 «En realidad él era un canalla, pero yo no le iba a la zaga; la diferencia quizá consis­tiría en que él no experimentaba curiosidad por sus bajas pasiones como la sentiría yo. Ade­más, a mí no me importaba nada en aquellas circunstancias. Quizá fuera yo el que lo matara, quizá fuera el Astrólogo, el caso es que había arrojado mi vida a un recoveco monstruoso, en el que los demonios jugaban con mis sentidos como con los dados metidos en un cubilete.
 
@@ -311,15 +305,15 @@ ha estado cubierta en nuestra memoria por el presente de la vida. Ignorábamos q
 
 «Sin embargo, la única forma de rehabilitarme ante mí era asesinándolo a Barsut, y de pronto me veía de pie junto a él; estaba atado con sogas gruesas y echado sobre un montón de bolsas; de él sólo era nítido el verde perfil del ojo y la nariz pálida; yo me inclinaba suavemente encima de su cuerpo, esgrimía un revólver, le apartaba dulcemente el cabello de las sienes y le decía en voz muy baja:
 
-«-Vas a morir, canalla.
+«–Vas a morir, canalla.
 
-«Los bulto se estremecía, yo levantaba el revólver, apoyaba el caño en la piel sobre la sien y nuevamente repetía en voz muy baja:
+«Los bultos se estremecía, yo levantaba el revólver, apoyaba el caño en la piel sobre la sien y nuevamente repetía en voz muy baja:
 
-«-Vas a morir, canalla.
+«–Vas a morir, canalla.
 
 «Los brazos se removían bajo las gruesas ligaduras, era una desesperada faena de huesos y de músculos espantados.
 
-«-¿Te acordás, canalla, te acordás de las papas, de la ensalada volcada encima de la mesa? ¿Tengo ahora esa cara de infeliz que te preocupaba?
+«–¿Te acordás, canalla, te acordás de las papas, de la ensalada volcada encima de la mesa? ¿Tengo ahora esa cara de infeliz que te preocupaba?
 
 «Mas intempestivamente sentía vergüenza de decirle esas villanías, y entonces le decía, o no, no le decía nada, tomaba una bolsa y le cubría la cabeza: bajo la arpillera tupida, la cabeza se removía furiosamente; yo trataba de apretarla contra el piso para asegurar la eficacia del balazo y la posición segura del caño del revólver, y la arpillera resbalaba sobre los cabellos y todos mis esfuerzos eran inútiles para domar el coraje de esa fiera, que ahora resoplaba sordamente para escapar de la muerte. Si se desvanecía este sueño, me imaginaba viajando por el archipiélago de la Malasia, a bordo de un velero en el océano Indico; había cambiado de nombre, mascullaba inglés, mi tristeza era quizá la misma, pero ahora tenía brazos fuertes, la mirada serenísima; quizás en Borneo, quizás en Calcuta o más allá del mar Rojo, o al otro lado de la Taiga, en Corea o en Manchuria, mi vida se reedificará».
 
@@ -327,7 +321,7 @@ Cierto es que ya no eran los sueños del inventor ni del nombre que descubría u
 
 En otros momentos el terror avanzaba en Erdosain: tenía la sensación de estar engrilletado, la terrible civilización lo había metido dentro de un chaleco de fuerza del que no se podía escapar. Veíase encadenado y con el traje de rayadillo, cruzando lentamente en una columna presidiaría, entre médanos de nieve, hacía los bosques de Ushuaia. El cielo estaba arriba blanco como una chapa de estaño.
 
-Esta visión le enardeció; aciegado del furor lento, se levantó, caminando de una parte a otra del cuarto, tenía intenciones de golpear las paredes con los puños, hubiera queri­do horadar los muros con los huesos; luego se detuvo en la jamba de la puerta, se cruzó de brazos, nuevamente la pena retrepó hasta su garganta, era inútil cuanto hiciera, en su vida había una realidad ostensible, única, absoluta. El y los otros. Entre él y los otros se interponía una distancia, era quizá la incomprensión de los demás, o quizá su locura. De cualquier forma, no por eso era menos desdichado. Y nuevamente el pasado se levantó por pedazos ante sus ojos; la verdad es que hubiera deseado escaparse de sí mismo, abandonar definitiva­mente aquella vida que contenía su cuerpo y que lo envenenaba.
+Esta visión le enardeció; aciegado del furor lento, se levantó, caminando de una parte a otra del cuarto, tenía intenciones de golpear las paredes con los puños, hubiera queri­do horadar los muros con los huesos; luego se detuvo en la jamba de la puerta, se cruzó de brazos, nuevamente la pena retrepó hasta su garganta, era inútil cuanto hiciera, en su vida había una realidad ostensible, única, absoluta. Él y los otros. Entre él y los otros se interponía una distancia, era quizá la incomprensión de los demás, o quizá su locura. De cualquier forma, no por eso era menos desdichado. Y nuevamente el pasado se levantó por pedazos ante sus ojos; la verdad es que hubiera deseado escaparse de sí mismo, abandonar definitiva­mente aquella vida que contenía su cuerpo y que lo envenenaba.
 
 ¡Ah!, entrar a un mundo más nuevo con grandes caminos en los bosques, y donde el hedor de las fieras fuera más incomparablemente dulce que la horrible presencia del hombre.
 
@@ -343,17 +337,15 @@ Salieron sin decir palabra. Más tarde Erdosain reflexionaba sobre este viaje ex
 
 Refiriéndose a esas circunstancias, decía:
 
--Iba con Barsut como un condenado a muerte marcha hacia el paraje de la ejecución, abandonada toda su fuerza; con una sensación persistente, la del vacío ocupando los intersti­cios de mis entrañas.
+–Iba con Barsut como un condenado a muerte marcha hacia el paraje de la ejecución, abandonada toda su fuerza; con una sensación persistente, la del vacío ocupando los intersti­cios de mis entrañas.
 
 «Barsut a su vez estaba ceñudo; yo comprendía que él allí, sentado junto a la venta­nilla, con el codo apoyado en el pasamano, acumulaba furores para descargarlos contra el invisible enemigo que su instinto le advertía estaba oculto en la quinta de Témperley».
 
 Erdosain continuó:
 
--A momentos me decía lo curioso que hubiera resultado para los otros pasajeros el saber que esos dos hombres, hundidos en el acolchado de cuero de los asientos, eran: uno el próximo asesino y el otro su víctima.
+–A momentos me decía lo curioso que hubiera resultado para los otros pasajeros el saber que esos dos hombres, hundidos en el acolchado de cuero de los asientos, eran: uno el próximo asesino y el otro su víctima.
 
-«Y sin embargo, todo continuaba lo mismo; el sol luda allá en los campos: habíamos dejado atrás los frigoríficos, las fábricas de estearina y jabón, las fundiciones de vidrio y de hierro, los bretes con el vacuno oliendo los postes, las avenidas a pavimentar con sus llanuras
-
-manchadas de yeso y de surcos. Y ahora comenzaba, traspuesto Lanús, el siniestro espectá­culo de Remedios de Escalada, monstruosos talleres de ladrillo rojo y sus bocazas negras, bajo cuyos arcos maniobraban las locomotoras, y a lo lejos, en las entrevias, se veían cuadri­llas de desdichados apaleando grava o transportando durmientes.
+«Y sin embargo, todo continuaba lo mismo; el sol lucía allá en los campos: habíamos dejado atrás los frigoríficos, las fábricas de estearina y jabón, las fundiciones de vidrio y de hierro, los bretes con el vacuno oliendo los postes, las avenidas a pavimentar con sus llanuras manchadas de yeso y de surcos. Y ahora comenzaba, traspuesto Lanús, el siniestro espectá­culo de Remedios de Escalada, monstruosos talleres de ladrillo rojo y sus bocazas negras, bajo cuyos arcos maniobraban las locomotoras, y a lo lejos, en las entrevías, se veían cuadri­llas de desdichados apaleando grava o transportando durmientes.
 
 «Más allá, entre una raquítica vegetación de plátanos intoxicados por el hollín y los hedores del petróleo, cruzaba la senda oblicua de los chalets rojos para los empleados de la empresa, con sus jardincitos minúsculos, sus persianas ennegrecidas por el humo y los cami­nos sembrados de escoria y carbonilla».
 
@@ -361,7 +353,7 @@ Barsut iba ensimismado. Erdosain, para explicar el exacto término, se dejaba es
 
 Así transcurrió el viaje. Cuando llegaron a Témperley, Barsut se sacudió como si despertara escalofriado de un sueño penoso, y se limitó a decir:
 
--¿Por dónde es?
+–¿Por dónde es?
 
 Erdosain extendió el brazo, señalando vagamente la distancia que debía caminar, y Barsut siguió el rumbo.
 
@@ -369,17 +361,17 @@ Ahora cruzaban en silencio las calles hacia la quinta del Astrólogo.
 
 Caía el tierno azul de la mañana en los bardales de las calles oblicuas.
 
-Tallos, pasteles de todos los verdes y árboles, creaban informes edificios vegetales, crestados por penachos flexibles y bifurcados por laberintos de leñosidades rojas. Esto bajo el aire que ondulaba suavemente, de forma tal, que esas fantásticas construcciones del botá­nico azar parecían flotar en una atmósfera de oro, que tenía la lucidez vitrea de un cristal cóncavo, reteniendo en su esfericidad el profundo hedor de la tierra.
+Tallos, pasteles de todos los verdes y árboles, creaban informes edificios vegetales, crestados por penachos flexibles y bifurcados por laberintos de leñosidades rojas. Esto bajo el aire que ondulaba suavemente, de forma tal que esas fantásticas construcciones del botá­nico azar parecían flotar en una atmósfera de oro, que tenía la lucidez vitrea de un cristal cóncavo, reteniendo en su esfericidad el profundo hedor de la tierra.
 
--Linda la mañana -dijo Barsut.
+–Linda la mañana –dijo Barsut.
 
 Y ya no hablaron más hasta llegar al frente de la quinta.
 
--Aquí es -dijo Erdosain.
+–Aquí es –dijo Erdosain.
 
 Barsut dio un salto atrás y mirándolo con una agudeza increíble, exclamó:
 
--¿Y cómo sabes que es aquí, si no hay número?
+–¿Y cómo sabes que es aquí, si no hay número?
 
 Comentando más tarde esta incidencia, Erdosain decía:
 
@@ -387,7 +379,7 @@ Comentando más tarde esta incidencia, Erdosain decía:
 
 Erdosain levantó la vista y con un aplomo inesperado para él y sorprendente des­pués, le contestó:
 
--Porque vine ayer a dar vueltas por acá. Quería ver si veía a Elsa.
+–Porque vine ayer a dar vueltas por acá. Quería ver si veía a Elsa.
 
 Barsut lo miró dudando.
 
@@ -395,11 +387,11 @@ Hubiera afirmado que Erdosain mentía, pero el amor propio le impedía retrocede
 
 Tapándole hasta la mitad del rostro el ancha ala de un sombrero de paja, y en mangas de camisa, se detuvo frente al portón de alambre pintado de rojo el Hombre que vio a la Partera.
 
--¿Está la señora? -preguntó Barsut.
+–¿Está la señora? –preguntó Barsut.
 
 Bromberg, sin contestar, corrió el cerrojo y abrió el portón: luego se internó en un sendero que torcía hacia la casa entre el eucaliptal, y los dos hombres lo siguieron. Repenti­namente una voz gritó:
 
--¿Dónde van ustedes?
+–¿Dónde van ustedes?
 
 Barsut movió la cabeza. Bromberg giró sobre los talones, y como si se hubiera roto algún resorte de su brazo, éste se alargó semejante a un rayo.
 
@@ -413,24 +405,24 @@ El Astrólogo lo tomó por la coyuntura de los brazos, con los dedos en garfio b
 
 El Astrólogo aseguró con el extremo de ésta por encima del tobillo, el pie de Barsut, hizo varios nudos con los eslabones, luego lo aseguró con un candado, rechinó éste al abrirse, y Erdosain, enderezándose sobre el caído, dijo mirándolo al Astrólogo:
 
--¿Ha visto? La libreta de cheques no la tiene encima.
+–¿Ha visto? La libreta de cheques no la tiene encima.
 
 Eran las diez de la mañana. El Astrólogo miró el reloj y dijo:
 
--Tengo tiempo de tomar el rápido que llega a Rosario a las seis. ¿Quiere acompañar­me hasta Retiro?
+–Tengo tiempo de tomar el rápido que llega a Rosario a las seis. ¿Quiere acompañar­me hasta Retiro?
 
--¿Cómo, va a Rosario?
+–¿Cómo, va a Rosario?
 
--¿Y, si tengo que hacerle el telegrama a la dueña de la pensión? ¿Usted tiene el número?
+–¿Y, si tengo que hacerle el telegrama a la dueña de la pensión? ¿Usted tiene el número?
 
--Sí, todo.
+–Sí, todo.
 
--Es lo mejor para apoderarse del equipaje de Barsut sin despertar sospechas. ¿En la pensión no tiene nada más?
+–Es lo mejor para apoderarse del equipaje de Barsut sin despertar sospechas. ¿En la pensión no tiene nada más?
 
--Sí, el baúl y dos muletas.
+–Sí, el baúl y dos muletas.
 
--Perfectamente. Dejémonos de charlas y vamos al grano. A las seis estaré en Rosa­rio, le hago el telegrama a la vieja, usted se da una vuelta mañana a las diez y haciéndose el zonzo pregunta si Barsut no llegó todavía a Rosario, y como yo no he llegado, usted agrega que sabe que me han ofrecido un importante empleo, etc., etc. ¿Qué le parece?
+–Perfectamente. Dejémonos de charlas y vamos al grano. A las seis estaré en Rosa­rio, le hago el telegrama a la vieja, usted se da una vuelta mañana a las diez y haciéndose el zonzo pregunta si Barsut no llegó todavía a Rosario, y como yo no he llegado, usted agrega que sabe que me han ofrecido un importante empleo, etc., etc. ¿Qué le parece?
 
--Muy bien.
+–Muy bien.
 
 A las doce el Astrólogo subía al tren.
