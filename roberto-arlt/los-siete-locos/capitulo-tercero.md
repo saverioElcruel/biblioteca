@@ -12,23 +12,23 @@ El día martes, a las cuatro de la tarde, Erdosain recibió la visita del Astró
 
 El Astrólogo permaneció en compañía de Erdosain unos minutos, y cuando éste bajaba la escalera, examinando sobresaltado su reloj, dijo a aquél:
 
--Caramba... son las cuatro, tengo que ir a un montón de sitios... lo espero mañana a las nueve... ¡Ay! yo he pensado que el único que podía desempeñar el puesto de Jefe de Industrias era usted. Bueno, mañana conversaremos... ¡Ah!, no se olvide de presentar... me­jor dicho, de prepararse un proyecto sobre turbinas hidráulicas, un tipo para usina de monta­ña, sencillo. Sería para la colonia y los trabajos de electrometalurgia.
+–Caramba... son las cuatro, tengo que ir a un montón de sitios... lo espero mañana a las nueve... ¡Ay! yo he pensado que el único que podía desempeñar el puesto de Jefe de Industrias era usted. Bueno, mañana conversaremos... ¡Ah!, no se olvide de presentar... Me­jor dicho, de prepararse un proyecto sobre turbinas hidráulicas, un tipo para usina de monta­ña, sencillo. Sería para la colonia y los trabajos de electrometalurgia.
 
--¿Cuántos kilowats?
+–¿Cuántos kilowats?
 
--No sé... eso debe estudiarlo usted. Habrá hornos eléctricos... en fin, arrégleselas usted. Además, ha llegado el Buscador de Oro, mañana él le dará detalles más concretos. Prepárese para que no lo sorprenda el asunto. Diablo, se hace tarde... hasta mañana... -arre­glándose la chistera llamó a un chofer que pasaba y se acomodó en el automóvil.
+–No sé... eso debe estudiarlo usted. Habrá hornos eléctricos... en fin, arrégleselas usted. Además, ha llegado el Buscador de Oro, mañana él le dará detalles más concretos. Prepárese para que no lo sorprenda el asunto. Diablo, se hace tarde... hasta mañana... –arre­glándose la chistera llamó a un chofer que pasaba y se acomodó en el automóvil.
 
 Al día siguiente, Erdosain, caminando por las veredas de Témperley, observaba asom­brado que hacía mucho tiempo que no gozaba de una emoción de sosiego semejante.
 
 Caminaba despacio. Aquellos túneles vegetales le daban la sensación de un trabajo titánico y disforme. Miraba deleitado los senderos de grano rojo en los parques, que avanza­ban sus láminas escarlatas hasta los prados, manteles verdes esmaltados de flores violáceas, amarillas y rojas. Y si levantaba los ojos, se encontraba con aguanosos pozales en el cenit, que le producían un vértigo de caída, pues de pronto el cielo desaparecía en sus pupilas y le dejaba en los ojos una negrura de ceguera, aclarándose el pensamiento en un furtivo maripo­seo de átomos de plata, que a su vez se evaporaban, transformándose en terribles azulencos ásperos y secos, ahora en lo alto, como cavernas de azul metileno. Y el placer que la mañana suscitaba en él, el goce nuevo, soldaba los trozos de su personalidad, rota por los anteriores sufrimientos del desastre, y sentía que su cuerpo estaba ágil para toda aventura.
 
--Augusto Remo Erdosain -tal como si pronunciar su nombre le produjera un placer físico, que duplicaba la energía infiltrada en sus miembros por el movimiento.
+–Augusto Remo Erdosain –tal como si pronunciar su nombre le produjera un placer físico, que duplicaba la energía infiltrada en sus miembros por el movimiento.
 
 Por las calles oblicuas, bajo los conos del sol, avanzaba sintiendo la potencia de su personalidad flamante: Jefe de Industrias. La frescura del camino botánico le enriquecía de grandores la conciencia. Y esta satisfacción lo aplomaba en las calles, como a esos muñecos de celuloide el lastre de plomo. Pensaba que se mostraría irónico en la reunión, y un desprecio malévolo le surgía para los débiles del mundo. El planeta era de los fuertes, eso mismo, de los fuertes. Arrasarían al mundo y se presentarían a la canalla que se encalla el trasero en las butacas de todas las oficinas, blindados de grandeza, semejantes a emperadores solitarios y crueles. Se imaginaban nuevamente en un desmesurado salón de muros encristalados cuyo centro lo ocupaba una mesa redonda. Sus cuatro secretarios con papeles en las manos y las plumas tras de la oreja se acercaban a consultarle, mientras que en un rincón, con los sombre­ros en las manos, inclinadas las cabezas canosas, estaban los delegados de los obreros. Y Erdosain volviéndose hacia ellos les decía simplemente: «O mañana vuelven al trabajo o los fusilaremos». Eso era todo. Hablaba poco y en voz baja, y su brazo estaba fatigado de firmar decretos. Lo mantenía en pie la ferocidad de los tiempos que necesitaban el alma de un tigre para adornar los confines de todos los crepúsculos de siniestros fusilamientos.
 
 Avanzaba ahora hacia la quinta del Astrólogo con el corazón batiente de entusiasmo, repitiéndose la frase de Lenin, como una musiquita llena de voluptuosidad:
 
-«-¡Qué diablo de revolución es ésta si no fusilamos a nadie!».
+«–¡Qué diablo de revolución es ésta si no fusilamos a nadie!».
 
 Al llegar a la quinta y entreabrir una de las puertas, vio venir a su encuentro al Astrólogo, cubierto de un largo guardapolvo gris y un sombrero de paja.
 
@@ -38,7 +38,7 @@ Barsut está tranquilo, ¿sabe? Yo creo que no va a oponer mucha resistencia par
 
 Ahora habían entrado al escritorio y el Astrólogo, haciendo girar el anillo con la piedra violeta y mirando el mapa de Estados Unidos, prosiguió:
 
--Conquistaremos la tierra, realizaremos nuestra «idea»... podemos instalar un prostí­bulo en San Martín o en Ciudadela, y la colonia de los Santos en la montaña. ¿Quién más apto para regentear el prostíbulo que el Rufián Melancólico? Le nombraremos Gran Patriar­ca Prostibulario.
+–Conquistaremos la tierra, realizaremos nuestra «idea»... podemos instalar un prostí­bulo en San Martín o en Ciudadela, y la colonia de los Santos en la montaña. ¿Quién más apto para regentear el prostíbulo que el Rufián Melancólico? Le nombraremos Gran Patriar­ca Prostibulario.
 
 Erdosain se acercó a la ventana... Los rosales vertían un perfume potentísimo, agu­do, todo el espacio se poblaba de una fragancia roja, fresca como un caudal de agua. Moscar­dones de alas de cristal revoloteaban en torno de las manchas escarlatas de los granados. Erdosain permaneció algunos segundos así. El espectáculo lo retrotrajo a la idéntica tarde aquella en que había estado allí, en el mismo lugar. Y sin embargo, no se imaginaba que la noche lo esperaba con la sorpresa de la partida de Elsa.
 
@@ -46,23 +46,23 @@ El verdor multiforme penetraba por sus ojos, pero él no lo veía. Allá en el f
 
 Un pájaro pasó ante sus ojos, y Erdosain volviéndose al Astrólogo, dijo con voz forzadamente suave:
 
--Hombre, haga usted lo que quiera. -Luego sentóse, encendió un cigarrillo y obser­vándolo al otro, que con un compás marcaba un círculo en un mapa azul, preguntó-: ¿Pero qué piensa hacer usted? ¿El Rufián Melancólico se prestará para administrar los prostíbulos?
+–Hombre, haga usted lo que quiera. -Luego se sentó, encendió un cigarrillo y obser­vándolo al otro, que con un compás marcaba un círculo en un mapa azul, preguntó-: ¿Pero qué piensa hacer usted? ¿El Rufián Melancólico se prestará para administrar los prostíbulos?
 
--Sí, de eso no hay cuidado y Barsut no va a oponer mayor resistencia.
+–Sí, de eso no hay cuidado y Barsut no va a oponer mayor resistencia.
 
--¿Siempre está en la cochera?
+–¿Siempre está en la cochera?
 
--Me pareció prudente secuestrarlo. Lo encadené en la caballeriza.
+–Me pareció prudente secuestrarlo. Lo encadené en la caballeriza.
 
--¿En la caballeriza?
+–¿En la caballeriza?
 
--Era el único lugar sólido donde lo podía guardar. Además, en una pieza arriba de la cochera duerme el Hombre que vio a la Partera...
+–Era el único lugar sólido donde lo podía guardar. Además, en una pieza arriba de la cochera duerme el Hombre que vio a la Partera...
 
--¿Qué es eso?
+–¿Qué es eso?
 
--Algún día le contaré. Vio la partera y no puede dormir de noche. Bueno, yo había pensado que usted...
+–Algún día le contaré. Vio la partera y no puede dormir de noche. Bueno, yo había pensado que usted...
 
--¿Cómo, voy a ser el que...?
+–¿Cómo, voy a ser el que...?
 
 -Déjeme hablar. Que usted lo viera y tratara de convencerlo para que firmara, en fin, que le expusiera nuestras ideas...
 
@@ -152,9 +152,9 @@ Abrió el candado, descorrió la cadena y súbitamente encurioseado empujó una 
 
 El prisionero se disponía a comer, desnudos los brazos en el círculo de la luz amari­lla que sobre una mesa de pino extendía la lámpara de kerosene.
 
-Estaba Barsut sentado bajo el triángulo de la pesebrera metálica, entre los muros de madera de un box, y al verlo a Erdosain arrugando la frente, detuvo por un segundo la acei­tera con que regaba un trozo de carne rodeada de patatas; luego, sin decir palabra que revela­ra su sorpresa, se engolfó nuevamente en su nutricio trabajo. Alargando el brazo y cogiendo entre sus dedos una pizca de sal espolvoreó las patatas. Guardaba compostura sombría a pesar de que un agujero de su camiseta rosa dejaba ver su sobaco negro.
+Estaba Barsut sentado bajo el triángulo de la pesebrera metálica, entre los muros de madera de un box, y al verlo a Erdosain arrugando la frente, detuvo por un segundo la acei­tera con que regaba un trozo de carne rodeado de patatas; luego, sin decir palabra que revela­ra su sorpresa, se engolfó nuevamente en su nutricio trabajo. Alargando el brazo y cogiendo entre sus dedos una pizca de sal espolvoreó las patatas. Guardaba compostura sombría a pesar de que un agujero de su camiseta rosa dejaba ver su sobaco negro.
 
-Los ojos fijos en el fiambre, certificaban que Barsut le daba más importancia a su vianda que a Erdosain, detenido a tres pasos de allí. El resto del establo permanecía en la oscuridad. Por los intersticios de los muros entraban oblicuas saetas de sol que dejaban en el polvo del suelo porosos discos de oro.
+Los ojos fijos en el fiambre certificaban que Barsut le daba más importancia a su vianda que a Erdosain, detenido a tres pasos de allí. El resto del establo permanecía en la oscuridad. Por los intersticios de los muros entraban oblicuas saetas de sol que dejaban en el polvo del suelo porosos discos de oro.
 
 Barsut no se dignaba ver nada. Apretó el pan en la tabla de la mesa, cortó enérgica­mente una rebanada, se sirvió soda, no sin previamente lanzar un chorro contra el piso para limpiar la boquilla, y luego se inclinó para leer un libraco al costado de su plato, mientras masticaba una mezcla de carne, pan y patatas.
 
@@ -215,7 +215,7 @@ Eso es lo que ha pasado en realidad con los movimientos revolucionarios de cará
 
 Barsut, cruzándose de brazos, se había sentado a la orilla de la mesa.
 
-Sus pupilas verdes estaban tiesas en el Astrólogo, que, con el guardapolvo abotona­do hasta la garganta y el pelo revuelto, pues se había quitado el sombrero, caminaba de un extremo a otro de la cochera, apartando con la punta de un botín los tallos de pasto seco que sembraban el suelo. Erdosain, apoyado de espaldas contra un poste, observaba el semblante de Barsut, que lentamente se iba impregnando de atención irónica, casi malévola, como si las palabras que decía el Astrólogo sólo befa merecieran. Este, como si se escuchara a sí mismo, caminaba, se detenía, a instantes se mesaba el cabello. Dijo:
+Sus pupilas verdes estaban tiesas en el Astrólogo, que, con el guardapolvo abotona­do hasta la garganta y el pelo revuelto, pues se había quitado el sombrero, caminaba de un extremo a otro de la cochera, apartando con la punta de un botín los tallos de pasto seco que sembraban el suelo. Erdosain, apoyado de espaldas contra un poste, observaba el semblante de Barsut, que lentamente se iba impregnando de atención irónica, casi malévola, como si las palabras que decía el Astrólogo sólo befa merecieran. Éste, como si se escuchara a sí mismo, caminaba, se detenía, a instantes se mesaba el cabello. Dijo:
 
 -Sí, llegará un momento en que la humanidad escéptica, enloquecida por los place­res, blasfema de impotencia, se pondrá tan furiosa que será necesario matarla como a un perro rabioso...
 
@@ -239,7 +239,7 @@ Y continuó:
 
 -Esa desproporción... la ciencia...
 
--¡Qué ciencia ni ciencia! ¿Acaso usted sabe para qué sirve la ciencia? ¿Usted no se burla en su pensamiento de los sabios y los llama «infatuados de los perecedero»?
+-¡Qué ciencia ni ciencia! ¿Acaso usted sabe para qué sirve la ciencia? ¿Usted no se burla en su pensamiento de los sabios y los llama «infatuados de lo perecedero»?
 
 -Veo que usted se ha leído esas pavadas.
 
@@ -257,13 +257,11 @@ El Astrólogo se detuvo un momento. Ahora hacía girar el anillo de acero con la
 
 El tono de su voz se hizo más bronco. Una ráfaga de ferocidad ponía cierta desvia­ción de astigmatismo en su mirada. Movió la greñuda cabeza a diestra y siniestra, como si le punzara el cerebro la agudeza de una emoción extraordinaria, apoyó las manos en los ríñones y reanudando el ir y venir, repitió:
 
--¡ Ah! el oro... el oro... ¿Sabe cómo lo llamaban los antiguos germanos al oro? El oro rojo... el oro... ¿Se da cuenta usted? No abra la boca. Satanás. Dése cuenta, jamás, jamás ninguna sociedad secreta trató de efectuar una tal amalgama. El dinero será la soldadura y el lastre que le concederá a las ideas el peso y la violencia necesarias para arrastrar a los hom­bres. Nos dirigiremos en especial a las juventudes, porque son más estúpidas y entusiastas. Les prometeremos el imperio del mundo y del amor... Les prometeremos todo... ¿me com­prende usted?... y les daremos uniformes vistosos, túnicas esplendentes... capacetes con plu­majes de variados colores... pedrerías... grados de iniciación con nombres hermosos y jerar­quías... Y allá en la montaña levantaremos el templo de cartón... Eso será para imprimir una cinta... No. Cuando hayamos triunfado levantaremos el templo de las siete puertas de oro...
-
-Tendrá columnas de mármol rosado y los caminos para llegar a él estarán enarenados con granos de cobre. En torno construiremos jardines... y allá irá la humanidad a adorar el dios vivo que hemos inventado.
+-¡ Ah! el oro... el oro... ¿Sabe cómo lo llamaban los antiguos germanos al oro? El oro rojo... el oro... ¿Se da cuenta usted? No abra la boca. Satanás. Dése cuenta, jamás, jamás ninguna sociedad secreta trató de efectuar una tal amalgama. El dinero será la soldadura y el lastre que le concederá a las ideas el peso y la violencia necesarias para arrastrar a los hom­bres. Nos dirigiremos en especial a las juventudes, porque son más estúpidas y entusiastas. Les prometeremos el imperio del mundo y del amor... Les prometeremos todo... ¿me com­prende usted?... y les daremos uniformes vistosos, túnicas esplendentes... capacetes con plu­majes de variados colores... pedrerías... grados de iniciación con nombres hermosos y jerar­quías... Y allá en la montaña levantaremos el templo de cartón... Eso será para imprimir una cinta... No. Cuando hayamos triunfado levantaremos el templo de las siete puertas de oro... Tendrá columnas de mármol rosado y los caminos para llegar a él estarán enarenados con granos de cobre. En torno construiremos jardines... y allá irá la humanidad a adorar el dios vivo que hemos inventado.
 
 -Pero el dinero..., el dinero para hacer todo eso..., los millones...
 
-A medida que el Astrólogo hablaba, el entusiasmo de éste se contagiaba a Erdosain. Se había olvidado de Barsut, aunque éste se encontraba frente a él. Sin poderlo evitar, evoca­ba una tierra de posible renovación. La humanidad viviría en perpetua fiesta de simplicidad, ramilletes de estroncio tachonarían la noche de cascadas de estrellas rojas, un ángel de alas verdosas soslayaría la cresta de una nube, y bajo las botánicas arcadas de los bosques se deslizarían hombres y mujeres, envueltos en túnicas blancas, y limpio el corazón de la in­mundicia que a él lo apestaba. Cerró los ojos, y el semblante de Elsa se deslizó por su memo­ria, mas no despertó ningún eco, porque la voz del Astrólogo llenaba la cochera de esta réplica salvaje:
+A medida que el Astrólogo hablaba, el entusiasmo de éste se contagiaba a Erdosain. Se había olvidado de Barsut, aunque éste se encontraba frente a él. Sin poderlo evitar, evoca­ba una tierra de posible renovación. La humanidad viviría en perpetua fiesta de simplicidad, ramilletes de estroncio tachonarían la noche de cascadas de estrellas rojas, un ángel de alas verdosas soslayaría la cresta de una nube, y bajo las botánicas arcadas de los bosques se deslizarían hombres y mujeres, envueltos en túnicas blancas, y limpio el corazón de la inmundicia que a él lo apestaba. Cerró los ojos, y el semblante de Elsa se deslizó por su memo­ria, mas no despertó ningún eco, porque la voz del Astrólogo llenaba la cochera de esta réplica salvaje:
 
 -¿Así que le interesa de dónde sacaremos los millones? Es fácil. Organizaremos prostíbulos. El Rufián Melancólico será el Gran Patriarca Prostibulario... todos los miem­bros de la logia tendrán interés en las empresas... Explotaremos la usura... la mujer, el niño, el obrero, los campos y los locos. En la montaña... será en el Campo Chileno... colocaremos lavaderos de oro, la extracción de metales se efectuará por electricidad. Erdosain ya calculó una turbina de 500 caballos. Prepararemos el ácido nítrico reduciendo el nitrógeno de la atmósfera con el procedimiento del arco voltaico en torbellino y tendremos hierro, cobre y aluminio mediante las fuerzas hidroeléctricas. ¿Se da cuenta? Llevaremos engañados a los obreros, y a los que no quieran trabajar en las minas los mataremos a latigazos. ¿No sucede eso hoy en el Gran Chaco, en los yerbales y en las explotaciones de caucho, café y estaño? Cercaremos nuestras posesiones de cables electrizados y compraremos con una pera de agua a todos los polizontes y comisarios del Sur. El caso es empezar, ya ha llegado el Buscador de Oro. Encontró placeres en el Campo Chileno, vagando con una prostituta llamada la Másca­ra. Hay que empezar. Para la comedia del dios elegiremos un adolescente... Mejor será criar un niño de excepcional belleza, y se le educará de él por todas partes, pero con misterio, y la imaginación de la gente multiplicará su prestigio. ¿Se imagina usted lo que dirán los papana­tas de Buenos Aires cuando se propague la murmuración de que allá en las montañas del Chubut, en un templo inaccesible de oro y de mármol, habita un dios adolescente... un fan­tástico efebo que hace milagros?
 
@@ -279,7 +277,7 @@ Erdosain lo miró malhumorado a Barsut. ¿Era posible que fuera tan imbécil e i
 
 -Yo lo creía a usted obrerista.
 
--Cuando converse con un proletario seré rojo. Ahora converso con usted, y a usted le digo: Mi sociedad está inspirada en aquella que a principios del siglo noveno organizó un bandido persa llamado Abdala-Aben-Maimum. Naturalmente, sin el aspecto industrial que yo filtro en la mía, y que forzosamente garantía su éxito. Maimum quiso fusionar a los librepensadores, aristócratas y creyentes de dos razas tan distintas como la persa y la árabe, en una secta en la que implantó diversos grados de iniciación y misterios. Mentían descara­damente a todo el mundo. A los judíos les prometían la llegada del Mesías, a los cristianos la del Paracleto, a los musulmanes la del Madhi... de tal manera que una turba de gente de las más distintas opiniones, situación social y creencias trabajaban en pro de una obra cuyo verdadero fin era conocido por muy pocos. De esta manera Maimum esperaba llegar a domi­nar por completo el mundo musulmán. Excuso decirle que los directores del movimiento eran unos cínicos estupendos, que no creían absolutamente en nada. Nosotros les imitare­mos. Seremos bolcheviques, católicos, fascistas, ateos, militaristas, en diversos grados de iniciación.
+-Cuando converse con un proletario seré rojo. Ahora converso con usted, y a usted le digo: Mi sociedad está inspirada en aquella que a principios del siglo noveno organizó un bandido persa llamado Abdala-Aben-Maimum. Naturalmente, sin el aspecto industrial que yo filtro en la mía, y que forzosamente garantiza su éxito. Maimum quiso fusionar a los librepensadores, aristócratas y creyentes de dos razas tan distintas como la persa y la árabe, en una secta en la que implantó diversos grados de iniciación y misterios. Mentían descara­damente a todo el mundo. A los judíos les prometían la llegada del Mesías, a los cristianos la del Paracleto, a los musulmanes la del Madhi... de tal manera que una turba de gente de las más distintas opiniones, situación social y creencias trabajaban en pro de una obra cuyo verdadero fin era conocido por muy pocos. De esta manera Maimum esperaba llegar a domi­nar por completo el mundo musulmán. Excuso decirle que los directores del movimiento eran unos cínicos estupendos, que no creían absolutamente en nada. Nosotros les imitare­mos. Seremos bolcheviques, católicos, fascistas, ateos, militaristas, en diversos grados de iniciación.
 
 -Usted es el rufián más descarado que he conocido... Si tuviera éxito...
 
@@ -291,7 +289,7 @@ Barsut experimentaba un singular placer en insultarlo al Astrólogo. Y es que no
 
 En aquel instante, Erdosain se observó a sí mismo de lo singular que resultaba el hecho de que Barsut en ningún momento le amenazara al Astrólogo con represalias para el momento en que se encontrara libre, lo que le hizo decirse: «Hay que andar con cuidado con este Judas, es capaz de vendernos, no por su plata, sino por envidia». El Astrólogo continuó:
 
--Su dinero nos servirá para instalar un lenocinio, organizar el pequeño contingente y comprar y herramientas, instalación de radiotelegrafía y otros elementos para el lavadero de oro.
+-Su dinero nos servirá para instalar un lenocinio, organizar el pequeño contingente y comprar herramientas, instalación de radiotelegrafía y otros elementos para el lavadero de oro.
 
 -¿Y usted no admite que puede equivocarse?
 
@@ -321,9 +319,7 @@ Erdosain sonreía. Luego, sin mirar al encadenado, dijo:
 
 -¿Usted también se cree genio? -estalló iracundo Barsut.
 
--Yo también me creo genio... Claro que lo creo... pero cinco minutos y una sola vez al día..., aunque poco me interesa serlo o no. Las frases importan poco a los predestinados a realizar. Son los fronterizos del genio los que engordan con palabras inútiles. Yo me he
-
-planteado este problema que nada tiene que ver con mis condiciones intelectuales. ¿Puede hacerse felices a los hombres? Y empiezo por acercarme a los desgraciados, darles por obje­tivo de sus actividades una mentira que los haga felices inflando su vanidad..., y estos pobres diablos que abandonados a sí mismos no hubieran pasado de incomprendidos, serán el pre­cioso material con que produciremos la potencia... el vapor...
+-Yo también me creo genio... Claro que lo creo... pero cinco minutos y una sola vez al día..., aunque poco me interesa serlo o no. Las frases importan poco a los predestinados a realizar. Son los fronterizos del genio los que engordan con palabras inútiles. Yo me he planteado este problema que nada tiene que ver con mis condiciones intelectuales. ¿Puede hacerse felices a los hombres? Y empiezo por acercarme a los desgraciados, darles por obje­tivo de sus actividades una mentira que los haga felices inflando su vanidad..., y estos pobres diablos que abandonados a sí mismos no hubieran pasado de incomprendidos, serán el pre­cioso material con que produciremos la potencia... el vapor...
 
 -Usted se va por las ramas. Yo le pregunto qué fin personal persigue usted al querer organizar la sociedad.
 
@@ -333,7 +329,7 @@ Barsut sonrió imperceptiblemente. Aquel hombre hablando del Elegido con su orej
 
 La voz del Astrólogo se hizo menos imperiosa.
 
--Créame, siempre ocurre así en los tiempos de inquietud y desorientación. Algunos pocos se anticipan con un presentimiento de que algo formidable debe ocurrir... Esos intuitivos, yo formo parte de ese gremio de expectantes, se creen en el deber de excitar la conciencia de la sociedad..., de hacer algo aunque ese algo sean disparates. Mi algo en esta circunstancia es la sociedad secreta. ¡Gran Dios! ¿Sabe acaso el hombre la consecuencia de sus actos? Cuan­do pienso que voy a poner en movimiento un mundo de títeres..., títeres que se multiplicarán, me estremezco, hasta llego a pensar que lo que puede ocurrir es tan ajeno a mi voluntad como lo serían a la voluntad del dueño de una usina las bestialidades que ejecutara en el tablero un electricista que se hubiera vuelto repentinamente loco, Y a pesar de ellos siento la imperiosa necesidad de poner en marcha esto, de reunir en un solo manojo la disforme potencia de cien psicologías distintas, de armonizarlas mediante el egoísmo, la vanidad, los deseos y las ilu­siones, teniendo como base la mentira y como realidad el oro..., el oro rojo...
+-Créame, siempre ocurre así en los tiempos de inquietud y desorientación. Algunos pocos se anticipan con un presentimiento de que algo formidable debe ocurrir... Esos intuitivos, yo formo parte de ese gremio de expectantes, se creen en el deber de excitar la conciencia de la sociedad..., de hacer algo aunque ese algo sean disparates. Mi algo en esta circunstancia es la sociedad secreta. ¡Gran Dios! ¿Sabe acaso el hombre la consecuencia de sus actos? Cuan­do pienso que voy a poner en movimiento un mundo de títeres..., títeres que se multiplicarán, me estremezco, hasta llego a pensar que lo que puede ocurrir es tan ajeno a mi voluntad como lo serían a la voluntad del dueño de una usina las bestialidades que ejecutara en el tablero un electricista que se hubiera vuelto repentinamente loco. Y a pesar de ellos siento la imperiosa necesidad de poner en marcha esto, de reunir en un solo manojo la disforme potencia de cien psicologías distintas, de armonizarlas mediante el egoísmo, la vanidad, los deseos y las ilu­siones, teniendo como base la mentira y como realidad el oro..., el oro rojo...
 
 -Usted está en lo cierto... Usted va a triunfar.
 
@@ -353,7 +349,7 @@ Barsut levantó sus ojos descoloridos, y ahora su rostro con barba de tres días
 
 -Mas no quisiera llegar a eso... Lo que yo quisiera es contar con su ayuda personal... que usted se interesara en nuestros proyectos. Créame, nosotros estamos viviendo en una época terrible. Aquel que encuentre la mentira que necesita la multitud será el Rey del Mun­do. Todos los hombres viven angustiados... El catolicismo no satisface a nadie, el budismo no se presta para nuestro temperamento estragado por el deseo de gozar. Quizá hablemos de Lucifer y de la Estrella de la Tarde. Usted le agregará a nuestro sueños toda la poesía que ellos necesitan, y nos dirigiremos a los jóvenes... ¡Oh!, es muy grande esto... muy grande...
 
-El Astrólogo se dejó caer sobre el cajón. Estaba extenuado. Enjugóse el sudor de la frente con un pañuelo a cuadros como el de los labriegos, y los tres permanecieron un instan­te en silencio.
+El Astrólogo se dejó caer sobre el cajón. Estaba extenuado. Se enjugó el sudor de la frente con un pañuelo a cuadros como el de los labriegos, y los tres permanecieron un instan­te en silencio.
 
 De pronto Barsut dijo:
 
