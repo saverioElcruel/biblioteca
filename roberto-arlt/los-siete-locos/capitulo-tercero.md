@@ -399,7 +399,7 @@ Se detuvieron junto a la casa. Arriba unas nubes achocolatadas avanzaban rápida
 
 -Lo cobrará usted.
 
--¿No tiene usted miedo que me escape?
+-¿No tiene usted miedo de que me escape?
 
 -No, por el momento no.
 
@@ -494,9 +494,9 @@ El Mayor continuó, fijas las miradas de todos en él:
 
 -El ejército es un estado superior dentro de una sociedad inferior, ya que nosotros somos la fuerza específica del país. Y sin embargo, estamos sometidos a las resoluciones del gobierno... ¿y el gobierno quién lo constituye?... el poder legislativo y el ejecutivo... es decir, hombres elegidos por partidos políticos informes... ¡y qué representantes, señores! Ustedes saben mejor que yo que para ser diputado hay que haber tenido una carrera de mentiras, comenzado como vago de comité, transando y haciendo vida común con perdularios de todas las calañas, en fin, una vida al margen del código y de la verdad. No sé si esto ocurre en países más civilizados que los nuestros, pero aquí es así. En nuestra cámara de diputados y de senadores, hay sujetos acusados de usura y homicidio, bandidos vendidos a empresas extran­jeras, individuos de una ignorancia tan crasa, que el parlamentarismo resulta aquí la comedia más grotesca que haya podido envilecer a un país. Las elecciones presidenciales se hacen con capitales norteamericanos, previa promesa de otorgar concesiones a una empresa interesada en explotar nuestras riquezas nacionales. No exagero cuando digo que la lucha de los parti­dos políticos en nuestra patria no es nada más que una riña entre comerciantes que quieren vender el país al mejor postor.
 
-Todos miraban estupefactos al Mayor. A través de los rombos y campánulas veíase al celeste cielo de la mañana, pero nadie reparaba en ello. Erdosain contábame más tarde que ninguno de los concurrentes a la reunión del miércoles había previsto de los concurrentes a la reunión del miércoles había previsto una escena de tan alto interés. El Mayor pasó un pañue­lo por sus labios y continuó:
+Todos miraban estupefactos al Mayor. A través de los rombos y campánulas veíase al celeste cielo de la mañana, pero nadie reparaba en ello. Erdosain contábame más tarde que ninguno de los concurrentes a la reunión del miércoles había previsto una escena de tan alto interés. El Mayor pasó un pañue­lo por sus labios y continuó:
 
--Me alegro de que mis palabras interesen. Hay muchos jóvenes oficiales que piensan como yo. Hasta contamos con algunos generales nuevos... Lo que conviene, y no se asom­bren de lo que les voy a decir, es darle a la sociedad un aspecto completamente comunista. Les digo esto porque aquí no existe el comunismo, y no se puede llamar comunistas a ese bloque de carpinteros que desbarran sobre sociología en una cuadra donde nadie se quita el sombrero. Deseo explicarles con nitidez mi pensamiento. Toda sociedad secreta es un cáncer en la colectividad. Sus funciones misteriosas desequilibran el funcionamiento de la misma. Pues bien, nosotros los jefes de células, les daremos a éstas un carácter completamente bol­chevique. -Fue la primera vez que esa palabra se pronunció allí, e involuntariamente todos se miraron-. Este aspecto atraerá numerosos desorbitados y, en consecuencia, la multiplicación de las células. Crearemos así un ficticio cuerpo revolucionario. Cultivaremos en especial los atentados terroristas. Un atentado que tiene mediano éxito despierta todas las conciencias oscuras y feroces de la sociedad. Si en el intervalo de un año repetimos los atentados, acom­pañándolos de proclamas antisociales que inciten al proletariado a la creación de los «so­viets»... ¿Sabes ustedes lo que habremos conseguido? Algo admirable y sencillo. Crear en el país la inquietud revolucionaria.
+-Me alegro de que mis palabras interesen. Hay muchos jóvenes oficiales que piensan como yo. Hasta contamos con algunos generales nuevos... Lo que conviene, y no se asom­bren de lo que les voy a decir, es darle a la sociedad un aspecto completamente comunista. Les digo esto porque aquí no existe el comunismo, y no se puede llamar comunistas a ese bloque de carpinteros que desbarran sobre sociología en una cuadra donde nadie se quita el sombrero. Deseo explicarles con nitidez mi pensamiento. Toda sociedad secreta es un cáncer en la colectividad. Sus funciones misteriosas desequilibran el funcionamiento de la misma. Pues bien, nosotros los jefes de células, les daremos a éstas un carácter completamente bol­chevique. -Fue la primera vez que esa palabra se pronunció allí, e involuntariamente todos se miraron-. Este aspecto atraerá numerosos desorbitados y, en consecuencia, la multiplicación de las células. Crearemos así un ficticio cuerpo revolucionario. Cultivaremos en especial los atentados terroristas. Un atentado que tiene mediano éxito despierta todas las conciencias oscuras y feroces de la sociedad. Si en el intervalo de un año repetimos los atentados, acom­pañándolos de proclamas antisociales que inciten al proletariado a la creación de los «so­viets»... ¿Saben ustedes lo que habremos conseguido? Algo admirable y sencillo. Crear en el país la inquietud revolucionaria.
 
 «La 'inquietud revolucionaria' yo la definiría como un desasosiego colectivo que no se atreve a manifestar sus deseos, todos se sienten alterados, enardecidos, los periódicos fomentan la tormenta y la policía le ayuda deteniendo a inocentes, que por los sufrimientos padecidos se convierten en revolucionarios; todas las mañanas las gentes se despiertan ansiosas de novedades, esperando un atentado más feroz que el anterior y que justifique sus pre­sunciones; las injusticias policiales enardecen los ánimos de los que no las sufrieron, no falta un exaltado que descarga su revólver en el pecho de un polizonte, las organizaciones obreras se revuelven y decretan huelgas, y las palabras revolución y bolcheviquismo infiltran en todas partes el espanto y la esperanza. Ahora bien, cuando numerosas bombas hayan estalla­do por los rincones de la ciudad y las proclamas sean leídas y la inquietud revolucionaria esté madura, entonces intervendremos nosotros, los militares...»
 
@@ -598,7 +598,7 @@ El Astrólogo continuó:
 
 Y leyó:
 
--10 Juegos de dormitorio, usados .... $ 2.000
+10 Juegos de dormitorio, usados .... $ 2.000
 
 Alquiler de la casa, mensual .... $ 400
 
@@ -606,19 +606,19 @@ Depósito, tres meses .... $ 1.200
 
 Instalación, cocina, baños y bar .... $ 2.000
 
--Coima mensual al comisari .... $ 300
+Coima mensual al comisario .... $ 300
 
--Coima al médico .... $ 150
+Coima al médico .... $ 150
 
--Coima al jefe político para la concesión .... $ 2.000
+Coima al jefe político para la concesión .... $ 2.000
 
--Impuesto municipal mensual .... $ 50
+Impuesto municipal mensual .... $ 50
 
--Piano eléctrico .... $ 1.500
+Piano eléctrico .... $ 1.500
 
--Gerenta .... $ 150
+Gerenta .... $ 150
 
--Cocinero .... $ 150
+Cocinero .... $ 150
 
 Total: .... $ 9.000
 
@@ -656,7 +656,7 @@ Erdosain levantó la cabeza y miró el pálido semblante del pseudo-sargento, cu
 
 -Además, yo cuento ya con un práctico amigo mío para la galvanoplastia -al decir esto pensaba en la familia Espila, que bien podía ingresar en la sociedad secreta, mas el Astrólogo interrumpió sus reflexiones, diciendo:
 
--El Buscador de Oro nos va a dar noticias de la zona donde pensamos instalar nues­tra colonia -y ésta se levantó.
+-El Buscador de Oro nos va a dar noticias de la zona donde pensamos instalar nues­tra colonia -y éste se levantó.
 
 Erdosain se asombró al considerar el físico del otro. Se había imaginado a éste de acuerdo a los cánones de la cinematografía, un hombre enorme, de barbazas rubias apestando a bebidas. No había tal cosa.
 
