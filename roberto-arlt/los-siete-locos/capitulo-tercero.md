@@ -1265,7 +1265,7 @@ El jugador reparó en la malevolencia de su compañero y dijo:
 
 -Es necesario hacer algo contra esta sociedad, che. Hay días que sufro de un modo insoportable. Parece que todos los hombres se hubieran vuelto bestias. Dan ganas de salir a la calle y predicar al exterminio o poner una ametralladora en cada bocacalle. ¿Te das cuenta? Vienen tiempos terribles.
 
-«El hijo se levantará contra el padre y el padre contra el hijo. Es necesario hacer algo contra esta sociedad maldita. Por eso me caso con una prostituta. Bien dicen las Escrituras: «Y tú, hijo de hombre, no juzgarás tú a la ciudad derramadora de sangre y le mostrarás todas sus abominaciones». Y estas otras palabras, fíjate en estas otras palabras: «Y enamoróse de sus rufianes cuya carne es como carne de asno y cuyo flujo como flujo de caballos». -Y señalando a los «cafishios», que jugaban en torno de las mesas, dijo-: Ahí los tenes. Entra al Royal Keller, al Marzzoto, al Pigall, al Maipú, en todas partes donde entres los vas a encon­trar. Fuerzas perdidas. Hasta esa canalla se aburre en el fondo. Cuando llegue la revolución se les ahorcará o se les mandará a la primera fila. Carne de cañón. Yo pude ser como ellos y renuncié. Ahora vienen tiempos terribles. Por eso dice el libro. «Y salvaré a la coja y recoge­ré a la descarriada y pondréla por alabanza y por renombre en todo el país de confusión». Porque hoy la ciudad está enamorada de sus rufianes y ellos hundieron a la coja y a la descarriada, pero tendrán que humillarse y besarle los pies a la coja y a la descarriada.
+«El hijo se levantará contra el padre y el padre contra el hijo». Es necesario hacer algo contra esta sociedad maldita. Por eso me caso con una prostituta. Bien dicen las Escrituras: «Y tú, hijo de hombre, no juzgarás tú a la ciudad derramadora de sangre y le mostrarás todas sus abominaciones». Y estas otras palabras, fijate en estas otras palabras: «Y enamoróse de sus rufianes cuya carne es como carne de asno y cuyo flujo como flujo de caballos». -Y señalando a los «cafishios», que jugaban en torno de las mesas, dijo-: Ahí los tenés. Entrá al Royal Keller, al Marzzoto, al Pigall, al Maipú, en todas partes donde entres los vas a encon­trar. Fuerzas perdidas. Hasta esa canalla se aburre en el fondo. Cuando llegue la revolución se les ahorcará o se les mandará a la primera fila. Carne de cañón. Yo pude ser como ellos y renuncié. Ahora vienen tiempos terribles. Por eso dice el libro. «Y salvaré a la coja y recoge­ré a la descarriada y pondréla por alabanza y por renombre en todo el país de confusión». Porque hoy la ciudad está enamorada de sus rufianes y ellos hundieron a la coja y a la descarriada, pero tendrán que humillarse y besarle los pies a la coja y a la descarriada.
 
 -¿Pero vos la querés o no a Hipólita?
 
@@ -1294,7 +1294,7 @@ El tren se detuvo en Ramos Mejía. El reloj de la estación marcaba las ocho de 
 
 Una neblina densa pesaba en las calles fangosas del pueblo.
 
-Cuando se encontró solo en la calle Centenario, bloqueado de frente y a las espaldas por dos murallas de neblina, recordó que al día siguiente lo asesinarán a Barsut. Era cierto. Lo asesinarían. Hubiera querido tener un espejo frente a sus ojos para ver su cuerpo asesino, tan inverosímil le parecía ser él (el yo) quien con tal crimen se iba a separar de todos los hombres.
+Cuando se encontró solo en la calle Centenario, bloqueado de frente y a las espaldas por dos murallas de neblina, recordó que al día siguiente lo asesinarían a Barsut. Era cierto. Lo asesinarían. Hubiera querido tener un espejo frente a sus ojos para ver su cuerpo asesino, tan inverosímil le parecía ser él (el yo) quien con tal crimen se iba a separar de todos los hombres.
 
 Los faroles ardían tristemente vertiendo a través del fangal cataratas de luz algodonosa que goteaban en los mosaicos haciendo invisible el pueblo más allá de dos pasos. Un enorme desconsuelo estaba en Erdosain que avanzaba más triste que un leproso.
 
@@ -1330,13 +1330,13 @@ Erdosain, al observar cuán enjuta estaba la fuente, respondió que ya lo había
 
 Le hicieron sitio junto a la mesa, y Erdosain tomó asiento entre el sordo Eustaquio que continuaba vigilando su jeroglífico y Elena, que distribuía el resto del guisote entre Emilio y la anciana.
 
-Erdosain los observó compadecido. Hacía muchos años que conocía a los Espila. En otro tiempo la familia ocupaba una posición relativamente desahogada, luego una sucesión de desastres los había arrojado en plena miseria, y Erdosain, que encontró casualmente un día en la calle a Emilio, los visitó. Hacía siete años que no los veía y se asombró de reencontrarlos a todos viviendo en un cuchitril, ellos, que en otra época tenían criada, sala y antesala. Las tres mujeres dormían en la habitación atestada de muebles viejos y que hacia en las horas de cenar o almorzar, las veces de comedor, mientras que Emilio y el sordo se guarecían en una cocinita de chapas de zinc. Para subvenir a los gastos de la casa, efectuaban los trabajos más extraordinarios: vendían guías sociales, aparatos caseros para fabricar hela­dos, y las dos hermanas hacían costura. Un invierno, era tanta la pobreza, que robaron un poste de telégrafos y lo aserraron en la noche. Otra vez se llevaron todos los pilares de un alambrado, y las aventuras que corrían para muñirse de dinero lo divertían y compadecían a un tiempo a Erdosain.
+Erdosain los observó compadecido. Hacía muchos años que conocía a los Espila. En otro tiempo la familia ocupaba una posición relativamente desahogada, luego una sucesión de desastres los había arrojado en plena miseria, y Erdosain, que encontró casualmente un día en la calle a Emilio, los visitó. Hacía siete años que no los veía y se asombró de reencontrarlos a todos viviendo en un cuchitril, ellos, que en otra época tenían criada, sala y antesala. Las tres mujeres dormían en la habitación atestada de muebles viejos y que hacía en las horas de cenar o almorzar, las veces de comedor, mientras que Emilio y el sordo se guarecían en una cocinita de chapas de zinc. Para subvenir a los gastos de la casa, efectuaban los trabajos más extraordinarios: vendían guías sociales, aparatos caseros para fabricar hela­dos, y las dos hermanas hacían costura. Un invierno, era tanta la pobreza, que robaron un poste de telégrafos y lo aserraron en la noche. Otra vez se llevaron todos los pilares de un alambrado, y las aventuras que corrían para muñirse de dinero lo divertían y compadecían a un tiempo a Erdosain.
 
 La impresión que recibió la primera vez que lo visitó, fue enorme. Vivían los Espila en un caserón cerca de Chacarita, un cuartel de tres pisos y divisorias de chapas de hierro. El edificio tenía el aspecto de un transatlántico, y los chiquillos brotaban de allí como si el conventillo fuera un falansterio. Durante algunos días Erdosain recorrió las calles pensando en los sufrimientos que debieron sobrellevar los Espila, para resignarse a esa catástrofe, y más tarde, cuando inventó la rosa de cobre, se dijo que para levantar el espíritu de esa gente era necesario injertarles una esperanza, y con parte del dinero robado en la Azucarera compró un acumulador usado, un amperímetro y los diversos elementos para instalar un primitivo taller de galvanoplastia.
 
 Y convenció a los Espila que debían dedicarse a ese trabajo en horas perdidas, pues de tener éxito todos se enriquecerían. Y él, cuya vida carecía por completo de consuelo y esperanza, él, que se sentía perdido hacía mucho tiempo, llegó a sugestionarlos con esperan­zas tan intensas que los Espila se avinieron a iniciar los experimentos, y Elena se dedicó muy en serio a estudiar galvanoplastia, mientras que el sordo preparaba los baños y se ponía práctico en ese trabajo de unir en serie o tensión los cables del amperímetro y en manejar la resistencia. Hasta la anciana participó en los experimentos y nadie dudó, cuando consiguie­ron cobrear una chapa de estaño, que en breve tiempo se enriquecerían si la rosa de cobre no fracasaba.
 
-Erdosain les habló además de confeccionar puntillas de oro, visillos de plata, gasas de cobre, y hasta esbozó un proyecto de corbata metálica que los asombró a todos. Su plan en esencia era sencillo. Se fabricarían camisas de pecheras, puño y cuellos metálicos, tomando género, bañándolo en una solución salina y sometiéndolo a un baño galvanoplastia) de cobre o níquel. Gath y Chaves, Harrods o San Juan podrían comprarle la patente, y Erdosain, que no creía sino a medias en esas aplicaciones, llegó a pensar un día que se había extralimitado en hacer soñar a esa gente, porque ahora, a pesar de que no pagaban a nadie y se morían casi de hambre, lo menos que soñaban era adquirir un Rolls-Royce y un chalet, que de no estar en la Avenida Alvear no les interesaba como propiedad. Erdosain se inclinó sobre la taza de té, y entonces Luciana, que estaba ligeramente sonrosada, correspondió a la sonrisa petulante de Emilio con una señal, pero éste, que a causa de estar extraordinariamente desdentado no podía hablar sino ceceando mucho, dijo:
+Erdosain les habló además de confeccionar puntillas de oro, visillos de plata, gasas de cobre, y hasta esbozó un proyecto de corbata metálica que los asombró a todos. Su plan en esencia era sencillo. Se fabricarían camisas de pecheras, puño y cuellos metálicos, tomando género, bañándolo en una solución salina y sometiéndolo a un baño galvanoplástico de cobre o níquel. Gath y Chaves, Harrods o San Juan podrían comprarle la patente, y Erdosain, que no creía sino a medias en esas aplicaciones, llegó a pensar un día que se había extralimitado en hacer soñar a esa gente, porque ahora, a pesar de que no pagaban a nadie y se morían casi de hambre, lo menos que soñaban era adquirir un Rolls-Royce y un chalet, que de no estar en la Avenida Alvear no les interesaba como propiedad. Erdosain se inclinó sobre la taza de té, y entonces Luciana, que estaba ligeramente sonrosada, correspondió a la sonrisa petulante de Emilio con una señal, pero éste, que a causa de estar extraordinariamente desdentado no podía hablar sino ceceando mucho, dijo:
 
 -Zabez... la roza ez un hecho...
 
@@ -1380,13 +1380,13 @@ Luego observando una sombra amarilla que cubría los pistilos de la flor, estri�
 
 -Una hora.
 
-Al levantar los ojos de la rosa su mirada se encontró con la de Luciana. Los ojos de la doncella parecían aterciopelados de una calidez misteriosa y sus labios sonreían dejando entrever los dientes brillantes. Erdosain la miró extrañado. El sordo examinaba la rosa y todas las cabezas estrechadas contra él seguían con atención las rayas amarillas del cianuro. Luciana no bajó los párpados. De pronto Erdosain recordó que al día siguiente intervendría en el asesinato de Barsut, y una tristeza enorme le hizo bajar los ojos: luego, súbitamente hostil para esa gente ilusionada y que no tenía una idea de sus sufrimientos y de las angustias que hacia meses estaba soportando, se levantó y dijo:
+Al levantar los ojos de la rosa su mirada se encontró con la de Luciana. Los ojos de la doncella parecían aterciopelados de una calidez misteriosa y sus labios sonreían dejando entrever los dientes brillantes. Erdosain la miró extrañado. El sordo examinaba la rosa y todas las cabezas estrechadas contra él seguían con atención las rayas amarillas del cianuro. Luciana no bajó los párpados. De pronto Erdosain recordó que al día siguiente intervendría en el asesinato de Barsut, y una tristeza enorme le hizo bajar los ojos: luego, súbitamente hostil para esa gente ilusionada y que no tenía una idea de sus sufrimientos y de las angustias que hacía meses estaba soportando, se levantó y dijo:
 
 -Bueno, hasta luego.
 
 Hasta el sordo lo miró desencajado.
 
-Elena dejó la silla y la anciana quedóse con el brazo inmóvil sosteniendo un plato que iba a colocar frente a Eustaquio.
+Elena dejó la silla y la anciana se quedó con el brazo inmóvil sosteniendo un plato que iba a colocar frente a Eustaquio.
 
 -¿Qué te pasa, Remo?
 
@@ -1412,7 +1412,7 @@ Elena lo observó seriamente:
 
 El sordo se resolvió a abandonar el jeroglífico e insistió en lo que dijera antes.
 
--Te prevengo que esto tenes que tomarlo en serio, porque te vas a hacer rico.
+-Te prevengo que esto tenés que tomarlo en serio, porque te vas a hacer rico.
 
 -¿Pero no te pasa nada a vos?
 
@@ -1426,7 +1426,7 @@ Luciana lo miró compadecida y dijo:
 
 La neblina encajaba en el callejón un cubo en el cual reverberaban tristemente los mecheros de los faroles de petróleo.
 
-De pronto, Luciana tomóse del brazo de Erdosain y le dijo con voz muy suave:
+De pronto, Luciana se tomó del brazo de Erdosain y le dijo con voz muy suave:
 
 -¡Te quiero, te quiero mucho!
 
@@ -1442,19 +1442,19 @@ Erdosain la envolvió en una mirada fría, pensando: «Esta mujer está mal».
 
 Ella continuó:
 
--Siempre pensaba en vos. ¿Querés que te explique el análisis de los aceros y cómo se funde el cobre, mirá, y el lavado del oro y lo qué son las muflas?
+-Siempre pensaba en vos. ¿Querés que te explique el análisis de los aceros y cómo se funde el cobre, mirá, y el lavado del oro y lo que son las muflas?
 
 Erdosain, apretando obstinadamente los labios, caminaba por el callejón pensando que la existencia de los hombres era un absurdo, y otra vez el rencor injustificado brotaba de él hacia la dulce muchacha que, apretada contra su brazo decía:
 
--¿Te acordás de aquella vez que hablaste de que tu ideal era ser jefe de un alto horno? Me has vuelto loca. ¿Por qué no hablas? Entonces me puse a estudiar metalurgia. ¿Querés que te explique la diferencia que existe entre una distribución irregular de carbono y otra molecular perfecta? ¿Por qué no hablas, querido?
+-¿Te acordás de aquella vez que hablaste de que tu ideal era ser jefe de un alto horno? Me has vuelto loca. ¿Por qué no hablás? Entonces me puse a estudiar metalurgia. ¿Querés que te explique la diferencia que existe entre una distribución irregular de carbono y otra molecular perfecta? ¿Por qué no hablás, querido?
 
-Sintióse el fragor sordo del tren que pasó a lo lejos, la lechosidad de la neblina se convertía en oscuridad a poca distancia de los faroles, y Erdosain hubiera querido hablar, explicarle sus desdichas, pero aquel la malignidad sorda y enconada, lo mantenía rígido junto a la doncella, que insistió:
+Se sintió el fragor sordo del tren que pasó a lo lejos, la lechosidad de la neblina se convertía en oscuridad a poca distancia de los faroles, y Erdosain hubiera querido hablar, explicarle sus desdichas, pero aquella malignidad sorda y enconada, lo mantenía rígido junto a la doncella, que insistió:
 
--Pero, ¿qué tenes? ¿Estás enojado con nosotros? Sin embargo, a vos te deberemos nuestra fortuna.
+-Pero, ¿qué tenés? ¿Estás enojado con nosotros? Sin embargo, a vos te deberemos nuestra fortuna.
 
 Erdosain la miró de pies a cabeza, apretó el brazo de la muchacha y le dijo sorda­mente:
 
--No me interesas.
+-No me interesás.
 
 Luego le volvió la espalda, y antes de que ella atinara a volverse hacia él, a rápido paso se perdió entre la neblina.
 
@@ -1493,7 +1493,7 @@ Mas como esto era imposible que aconteciera, su tristeza rebotaba como pelota de
 
 De pronto se encontró frente al portalón de la pensión donde vivía; entonces resolvió entrar. Su corazón latía impaciente.
 
-En puntillas cruzó la galería y acercándose a la puerta de su pieza la abrió sigilosa­mente. Luego, con las manos extendidas en la oscuridad, fue hacia el ángulo donde estaba el sofá y lentamente se acurrucó allí, evitando crujieran los muelles. Más tarde no encontró explicación para esta actitud. Estiró las piernas en el sofá y durante unos minutos permaneció con la nuca apoyada en el entrecruzamiento de sus manos. Y había más oscuridad en su alma que en aquel momento de tinieblas, que se convertiría en un cubo empapelado si encendiera la lámpara. Quería fijar su pensamiento en algo objetivo, lo cual le fue imposible. Esto le causó cierto miedo pueril; durante unos instantes extremó su atención, pero ningún sonido llegaba hasta él y entonces cerró los ojos. Su corazón trabajaba con golpes roncos, propul­sando la masa de su sangre, y una frialdad de agua le erizó el vello de la espalda. Con los párpados tiesos y el cuerpo rígido aguardaba un acontecimiento. De pronto comprendió que si continuaba en esa postura gritaría de miedo, y recogiendo los talones, con las piernas cruzadas como un Buda, aguardó en la oscuridad. Su aniquilamiento era intenso, mas no podía llamar a nadie, ni tampoco llorar. Y sin embargo, no era cosa de continuar así toda la noche, encuclillas.
+En puntillas cruzó la galería y acercándose a la puerta de su pieza la abrió sigilosa­mente. Luego, con las manos extendidas en la oscuridad, fue hacia el ángulo donde estaba el sofá y lentamente se acurrucó allí, evitando que crujieran los muelles. Más tarde no encontró explicación para esta actitud. Estiró las piernas en el sofá y durante unos minutos permaneció con la nuca apoyada en el entrecruzamiento de sus manos. Y había más oscuridad en su alma que en aquel momento de tinieblas, que se convertiría en un cubo empapelado si encendiera la lámpara. Quería fijar su pensamiento en algo objetivo, lo cual le fue imposible. Esto le causó cierto miedo pueril; durante unos instantes extremó su atención, pero ningún sonido llegaba hasta él y entonces cerró los ojos. Su corazón trabajaba con golpes roncos, propul­sando la masa de su sangre, y una frialdad de agua le erizó el vello de la espalda. Con los párpados tiesos y el cuerpo rígido aguardaba un acontecimiento. De pronto comprendió que si continuaba en esa postura gritaría de miedo, y recogiendo los talones, con las piernas cruzadas como un Buda, aguardó en la oscuridad. Su aniquilamiento era intenso, mas no podía llamar a nadie, ni tampoco llorar. Y sin embargo, no era cosa de continuar así toda la noche, en cuclillas.
 
 Encendió un cigarrillo y lo inmovilizó un gran frío.
 
@@ -1505,25 +1505,25 @@ El fósforo le quemaba las uñas... y de pronto, un impulso más fuerte que su t
 
 -¿Usted?... ¿No dormía usted?
 
-El sintió que ella estiraba el brazo; la mano de la mujer tomó entre los dedos su mentón e Hipólita dijo con una voz profunda:
+Él sintió que ella estiraba el brazo; la mano de la mujer tomó entre los dedos su mentón e Hipólita dijo con una voz profunda:
 
--¿Que tiene que no duerme?
+-¿Qué tiene que no duerme?
 
 -¿Usted me acaricia a mí, señora?
 
 -¿Por qué no duerme?
 
--Usted me toca a mí?.... ¡Pero qué fría está su mano!... ¿Por qué está tan fría su mano?
+-¿Usted me toca a mí?.... ¡Pero qué fría está su mano!... ¿Por qué está tan fría su mano?
 
 -Encienda la lámpara.
 
-Bajo la luz vertical, Erdosain quedóse contemplándola. Ella se sentó en el sofá.
+Bajo la luz vertical, Erdosain se quedó contemplándola. Ella se sentó en el sofá.
 
 Erdosain murmuró tímidamente:
 
 -¿Quiere que me siente a su lado? No podía dormir.
 
-Hipólita le hizo espacio, y junto a la intrusa, Erdosain no pudo contener la fuerza que levantaba sus manos, y con la yema de los dedos le acarició la frente.
+Hipólita lo hizo espacio, y junto a la intrusa, Erdosain no pudo contener la fuerza que levantaba sus manos, y con la yema de los dedos le acarició la frente.
 
 -¿Por qué es usted así? -le preguntó él.
 
@@ -1531,11 +1531,11 @@ La mujer lo miró serena.
 
 Erdosain la contempló un instante con muda desesperación; y al fin, recogió su fina mano. Iba a llevársela a los labios, pero una fuerza extraña chocó en su sensibilidad, y sollo­zando se desmoronó sobre la falda de la mujer.
 
-Lloraba convulsivamente a la sombra de la intrusa erguida y de su mirada inmóvil en los sacudimientos de su cabeza. Lloraba aciegado, retorcida la vida de un furor ronco, conte­niendo gritos cuyos desgarramientos incompletos renovaban su dolor horrible, y el sufri­miento brotaba de él inagotablemente, se inundaba de más pena, una pena que subía en sollozos en su garganta. Así agonizó varios minutos, mordiendo su pañuelo para no gritar, mientras que el silencio de ella era una blandura en la que se recostaba su espíritu extenuado. Luego el sufrimiento gritante se agotó; lágrimas en su pecho y encontró consuelo en estar caído así, con las mejillas mojadas, sobre el regazo de una mujer. Un enorme cansancio lo agobiaba, la figura de su esposa distante terminó por borrarse de la superficie de su pena, y mientras permanecía así, un encalmamiento crepuscular vino a resignarlo para todos los de­sastres que se habían preparado.
+Lloraba convulsivamente a la sombra de la intrusa erguida y de su mirada inmóvil en los sacudimientos de su cabeza. Lloraba aciegado, retorcida la vida de un furor ronco, conte­niendo gritos cuyos desgarramientos incompletos renovaban su dolor horrible, y el sufri­miento brotaba de él inagotablemente, se inundaba de más pena, una pena que subía en sollozos en su garganta. Así agonizó varios minutos, mordiendo su pañuelo para no gritar, mientras que el silencio de ella era una blandura en la que se recostaba su espíritu extenuado. Luego el sufrimiento gritante se agotó; lágrimas tardías brotaban de sus ojos, un ronquido sordo trajinaba en su pecho y encontró consuelo en estar caído así, con las mejillas mojadas, sobre el regazo de una mujer. Un enorme cansancio lo agobiaba, la figura de su esposa distante terminó por borrarse de la superficie de su pena, y mientras permanecía así, un encalmamiento crepuscular vino a resignarlo para todos los de­sastres que se habían preparado.
 
 Levantó el enrojecido rostro, rayado por los repliegues de la tela y húmedo de lágri­mas.
 
-Ella lo mirada serena.
+Ella lo miraba serena.
 
 -¿Está triste? -preguntó.
 
@@ -1571,7 +1571,7 @@ Ella sonrió amigablemente con una pierna cruzada sobre otra, la espalda ligeram
 
 Enderezó la intrusa la espalda y casi señorial se la alcanzó. Erdosain la tomó con precaución y se la llevó a los labios, y ella lo miró largamente, derretida la frialdad de sus pupilas en un calor súbito que le sonrojó las mejillas. Recordó entonces Erdosain al encade­nado, y sin que esto pudiera vencer la pálida alegría que estaba en él, dijo:
 
--Vea... si usted me pidiera ahora que me matara, yo lo hacía. Tan contento estoy.
+-Vea... si usted me pidiera ahora que me matara, yo lo haría. Tan contento estoy.
 
 El calor que hacía un instante convulsionó las aguas de sus ojos se perdió otra vez en la frialdad de su mirada. La mujer lo examinaba encurioseada.
 
@@ -1623,9 +1623,9 @@ Y de pronto, no pudiendo contener su curiosidad, exclamó:
 
 -¿Y?...
 
-Siempre con el peso de mis ideas. ¿Qué era lo que quería de la vida? ¿Entonces no lo sabía? En todas partes fueron amables conmigo. Más tarde he oído hablar mal de la gente rica... pero yo no supe ver esa maldad. Ellos vivían así. ¿Qué necesidad tenían de ser malos, no es cierto? Ellas eran las niñas y yo la sirvienta.
+-Siempre con el peso de mis ideas. ¿Qué era lo que quería de la vida? ¿Entonces no lo sabía? En todas partes fueron amables conmigo. Más tarde he oído hablar mal de la gente rica... pero yo no supe ver esa maldad. Ellos vivían así. ¿Qué necesidad tenían de ser malos, no es cierto? Ellas eran las niñas y yo la sirvienta.
 
--¿Y?-
+-¿Y?...
 
 -Recuerdo que un día iba en el tranvía acompañando a una de mis patronas. En el asiento venían conversando dos mozos. ¿Usted ha observado que hay días en que ciertas palabras suenan en los oídos como bombos... como si una hubiera estado siempre sorda y por primera vez oyera hablar a las personas? Bueno. Uno de los mozos decía: «Una mujer inteli­gente, aunque fuere fea, si se diera a la mala vida se enriquecería y si no se enamorara de nadie podría ser la reina de una ciudad. Si yo tuviera una hermana, la aconsejaría así». Al escucharlo, yo me quedé fría en el asiento. Estas palabras derritieron instantáneamente mi timidez y cuando llegamos al final del viaje me parecía que no eran los desconocidos los que habían pronunciado esas palabras, sino yo, yo que no me acordaba de ellas hasta ese momen­to. Y durante muchos días me preocupó el problema de cómo ser una mujer de mala vida.
 
@@ -1643,7 +1643,7 @@ Hipólita sonrió ruborizada.
 
 -Cuente, la deliciosa criatura.
 
--¡Qué chico es usted!... Bueno -Hipólita cerró las solapas del abrigo sobre su pecho y continuó-: Trabajaba como antes, todo el día, pero el trabajo se me hizo extraño... quiero decir, que mientras fregaba o hada una cama, mi pensamiento estaba lejos y al mismo tiempo tan adentro de mí, que a momentos me parecía que si ese pensamiento se hacía más grande se me iba a reventar la piel. Pero el problema no se resolvía. Escribí a una librería preguntando si no tenía algún manual para ser una mujer de mala vida y no me contestaron, hasta que un día decidí verlo a un abogado para que me aclarara ese punto. Fui hasta los tribunales y di vueltas por un montón de calles, miraba una chapa, otra, otra, hasta que, enfilando por la calle Juncal, me detuve ante una casa lujosa, hablé con el portero y me llevó en presencia de un doctor en leyes. Me acuerdo como si fuera hoy. Era un hombre delgado, serio, tenía toda la cara de un bandido perverso, pero al sonreír su alma parecía la de un mocoso. Más tarde, pensando, llegué a la conclusión de que ese hombre debió sufrir mucho.
+-¡Qué chico es usted!... Bueno -Hipólita cerró las solapas del abrigo sobre su pecho y continuó-: Trabajaba como antes, todo el día, pero el trabajo se me hizo extraño... quiero decir, que mientras fregaba o hacía una cama, mi pensamiento estaba lejos y al mismo tiempo tan adentro de mí, que a momentos me parecía que si ese pensamiento se hacía más grande se me iba a reventar la piel. Pero el problema no se resolvía. Escribí a una librería preguntando si no tenía algún manual para ser una mujer de mala vida y no me contestaron, hasta que un día decidí verlo a un abogado para que me aclarara ese punto. Fui hasta los tribunales y di vueltas por un montón de calles, miraba una chapa, otra, otra, hasta que, enfilando por la calle Juncal, me detuve ante una casa lujosa, hablé con el portero y me llevó en presencia de un doctor en leyes. Me acuerdo como si fuera hoy. Era un hombre delgado, serio, tenía toda la cara de un bandido perverso, pero al sonreír su alma parecía la de un mocoso. Más tarde, pensando, llegué a la conclusión de que ese hombre debió sufrir mucho.
 
 Chupó largamente el mate, luego, devolviéndoselo, dijo:
 
@@ -1663,7 +1663,7 @@ Erdosain entreabrió una hoja. Llovía aún. Hipólita continuó:
 
 -¿Y luego?
 
--Casi sin despedirme, salí a la calle. listaba contenta, nunca estuve más contenta que ese día. La mala vida. Erdosain, era eso, librarse del cuerpo, tener la voluntad libre para realizar todas las cosas que se le antojaran a una. Me sentía tan feliz que al primer buen mozo que pasó y que me deseó con bonitas palabras, me entregué.
+-Casi sin despedirme, salí a la calle. Estaba contenta, nunca estuve más contenta que ese día. La mala vida. Erdosain, era eso, librarse del cuerpo, tener la voluntad libre para realizar todas las cosas que se le antojaran a una. Me sentía tan feliz que al primer buen mozo que pasó y que me deseó con bonitas palabras, me entregué.
 
 -¿Y luego?
 
@@ -1711,7 +1711,7 @@ De pronto Hipólita lo miró seria.
 
 Erdosain iba a hablar de sus sufrimientos, pero se retuvo por pudor y dijo:
 
--No sé... muchas veces pensaba en la pureza... yo hubiera querido ser un hombre puro -y entusiasmándose, continuó-: Muchas veces sentí la tristeza de no ser un hombre puro. ¿Por qué? No lo sé. ¿Pero se imagina usted un hombre de alma blanca, enamorado por ver primera... y que todos fueran iguales? ¿Se imagina usted qué amor enorme entre una mujer pura y un hombre puro? Entonces, antes de entregarse el uno al otro, se matarían... o no; sería ella la que se ofrecería un día a él... luego se suicidarían, comprendiendo la inutilidad de vivir sin ilusiones.
+-No sé... muchas veces pensaba en la pureza... yo hubiera querido ser un hombre puro -y entusiasmándose, continuó-: Muchas veces sentí la tristeza de no ser un hombre puro. ¿Por qué? No lo sé. ¿Pero se imagina usted un hombre de alma blanca, enamorado por vez primera... y que todos fueran iguales? ¿Se imagina usted qué amor enorme entre una mujer pura y un hombre puro? Entonces, antes de entregarse el uno al otro, se matarían... o no; sería ella la que se ofrecería un día a él... luego se suicidarían, comprendiendo la inutilidad de vivir sin ilusiones.
 
 -Sin embargo, eso no es posible.
 
@@ -1775,7 +1775,7 @@ Ahora la voz de Erdosain había adquirido una fluidez vibrante.
 
 Batía la lluvia en los cristales de la puerta y en los mosaicos del patio. Erdosain chupaba lentamente su mate.
 
-Hipólita se levantó, fue hasta los cristales y miró un instante el patio negro. Luego volvióse y dijo:
+Hipólita se levantó, fue hasta los cristales y miró un instante el patio negro. Luego se volvió y dijo:
 
 -¿Sabe que usted es un hombre extraño?
 
@@ -1805,17 +1805,17 @@ Erdosain dejó su sillón, guardó el calentador, la yerba y el mate en el cajó
 
 Una enorme dulzura estaba en él.
 
-Sentóse en la alfombra de forma que su costado se apoyaba en las piernas de ella, abandonó la cabeza en sus rodillas, e Hipólita cerró los ojos.
+Se sentó en la alfombra de forma que su costado se apoyaba en las piernas de ella, abandonó la cabeza en sus rodillas, e Hipólita cerró los ojos.
 
 Estaba bien así. Reposaba en el regazo de la mujer, y el calor de sus miembros traspasaba la tela, entibiándole la mejilla. Aquella situación además le parecía muy natural; la vida adquiría ese aspecto cinematográfico que siempre había perseguido, y no se le ocurrió pensar en Hipólita, tiesa en el sofá, pensaba en él, era un débil y un sentimental. El tic tac del reloj espaciaba en el intervalo de su engranaje una gota de sonido que caía sucesivamente como una lenteja de agua en el cúbico silencio de la habitación. E Hipólita se dijo:
 
 -Toda la vida no hará nada más que quejarse y sufrir. ¿Para qué me sirve un mucha­cho así? Tendría que mantenerlo. Y la rosa de cobre debe ser una pavada. ¿Qué mujer va a llevar en el sombrero adornos de metal, pesados, y que se ennegrecen? Todos son así, sin embargo. Los débiles, inteligentes e inútiles; los otros, brutos y aburridos. Todavía no he encontrado entre ellos uno digno de cortarle el pescuezo a los otros, o de ser un tirano. Dan lástima.
 
-Pensaba así frecuentemente, a media que la realidad deslucía los fantoches que su imaginación teñía de vivos arrogantes un momento. Podía señalarlos con el dedo. Este pelele erguido, perfumado y severo que los días hábiles hacia reputación de su empaque y silencio, era un infeliz lascivo, aquel otro pequeño y modosito, siempre gentil, discreto y sensato, era víctima de vicios atroces, aquel brutal como un carretero y fuerte como un toro, más inexper­to que un escolar, y así todos pasaban ante sus ojos anudados por el deseo semejante e inextinguible, todos habían abandonado un instante las cabezas en sus rodillas desnudas, mien­tras que ella, ajena a las manos torpes y a los transitorios frenesíes que envaraban los fanto­ches tristes pensaba, áspera, la sensación de vivir como una sed en el desierto.
+Pensaba así frecuentemente, a medida que la realidad deslucía los fantoches que su imaginación teñía de vivos arrogantes un momento. Podía señalarlos con el dedo. Este pelele erguido, perfumado y severo que los días hábiles hacía reputación de su empaque y silencio, era un infeliz lascivo, aquel otro pequeño y modosito, siempre gentil, discreto y sensato, era víctima de vicios atroces, aquel brutal como un carretero y fuerte como un toro, más inexper­to que un escolar, y así todos pasaban ante sus ojos anudados por el deseo semejante e inextinguible, todos habían abandonado un instante las cabezas en sus rodillas desnudas, mien­tras que ella, ajena a las manos torpes y a los transitorios frenesíes que envaraban los fanto­ches tristes pensaba, áspera, la sensación de vivir como una sed en el desierto.
 
 -Así era. A los hombres sólo los movía el hambre, la lujuria y el dinero. Así era.
 
-Angustiada, decíase que el único que la había interesado era el farmacéutico, capaz de levantarse por unos instantes por encima de su carnadura vehemente, pero el terrible juego había desvanecido su mecanismo, y ahora yacía más roto que los otros muñecos.
+Angustiada, se decía que el único que la había interesado era el farmacéutico, capaz de levantarse por unos instantes por encima de su carnadura vehemente, pero el terrible juego había desvanecido su mecanismo, y ahora yacía más roto que los otros muñecos.
 
 ¡Qué vida la suya! En otros tiempos, cuando era mocita desvalida, pensaba que nunca tendría dinero ni una casa alhajada con hermosos muebles, ni vajilla reluciente, y esa imposibilidad de riqueza la entristecía tanto como hoy saber que ningún hombre de los que podían encamarse con ella tenía empuje para convertirse en un tirano o conquistador de tierras nuevas.
 
@@ -1830,13 +1830,13 @@ En el transcurso de los días los raros personajes de novela que había encontra
 
 Mas, ya saciados, se apartaban de ella como si se sintieran humillados de haberle ofrecido el espectáculo de su debilidad. Ahora se sumergía en la esterilidad de su vivir igual a un arenal geográficamente explorado.
 
-Así como era imposible transmutar el plomo en oro, asiera imposible transformar el alma del hombre.
+Así como era imposible transmutar el plomo en oro, asi era imposible transformar el alma del hombre.
 
-Cuántas veces había caído desnuda entre los brazos de un desconocido y le había dicho: «¿No te gustaría ir al África?» El otro respingó como sí a su lado hubiera silbado un crótalo. Y entonces tenía la impresión de que esos cuerpos armados de huesos, devanados en músculos, eran más débiles que los de los tiernos infantes, más asustadizos que los niños en el bosque.
+Cuántas veces había caído desnuda entre los brazos de un desconocido y le había dicho: «¿No te gustaría ir al África?» El otro respingó como si a su lado hubiera silbado un crótalo. Y entonces tenía la impresión de que esos cuerpos armados de huesos, devanados en músculos, eran más débiles que los de los tiernos infantes, más asustadizos que los niños en el bosque.
 
 Las mujeres le eran odiosas. Las veía abatirse bajo la sensualidad de los machos para ofrecer por todas partes la fealdad de sus vientres hinchados. Tenían exclusivamente capaci­dad para el sufrimiento, éste era un mundo de gente fatigada, fantasmas apenas despiertos que apestaban a tierra con su grávida somnolencia, como en las primeras edades los mons­truos perezosos y gigantescos. De allí que toda su alma voladora se sintiera aplastada por la inutilidad de los prójimos.
 
-Porque Hipólita hubiera querido moverse en un universo menos denso, un mundo liviano como una pompa de jabón donde la materia no estuviera sometida a la gravedad, y se imaginaba la dicha riente de recorrer todas las veredas del planeta metamorfoseaba a su voluntad y dándole a los días la realidad de un juego que compensara aquel que su niñez había carecido.
+Porque Hipólita hubiera querido moverse en un universo menos denso, un mundo liviano como una pompa de jabón donde la materia no estuviera sometida a la gravedad, y se imaginaba la dicha riente de recorrer todas las veredas del planeta metamorfoseando a su voluntad y dándole a los días la realidad de un juego que compensara aquel que su niñez había carecido.
 
 Todo le había sido negado cuando pequeña. Recordaba que una de las quimeras de su infancia fue soñar que sería la criatura más dichosa del mundo si viviera en una habitación empapelada.
 
@@ -1864,7 +1864,7 @@ Los mismos vestidos de las niñas, las telas livianas con que adornaban sus prec
 
 ¡Qué podía ser ella, sino sirvienta, siempre sirvienta!
 
-Hoscamente se levantaba de su corazón una negativa sorda, respuesta al fantasma invisible que la encocoraba. Su vida era una resistencia erguida contra la domesticidad. No sabía cómo escaparía de tal encadenamiento de desdichas, pero no dejaba de repetirse que ese estado era provisorio, ignorante sin embargo de lo que tenía que sobrevenirle. Y conti­nuamente observaba los modales de las señoritas y estudiaba cómo inclinaban las cabezas, así como se despedían de las amigas en las puertas de sus casas, reproduciendo luego ante un espejo los saludos y gestos que recordaba. Y estos actos que ejecutaba en la soledad de su cuartujo dejábanle por algunas horas en los labios y en el alma una sensación de señoría y delicadeza y entonces se reconvenía anteriores modales torpes, como si esos anteriores mo­dales fueran en desmedro de su auténtica y actual personalidad de señorita.
+Hoscamente se levantaba de su corazón una negativa sorda, respuesta al fantasma invisible que la encocoraba. Su vida era una resistencia erguida contra la domesticidad. No sabía cómo escaparía de tal encadenamiento de desdichas, pero no dejaba de repetirse que ese estado era provisorio, ignorante sin embargo de lo que tenía que sobrevenirle. Y conti­nuamente observaba los modales de las señoritas y estudiaba cómo inclinaban las cabezas, así como se despedían de las amigas en las puertas de sus casas, reproduciendo luego ante un espejo los saludos y gestos que recordaba. Y estos actos que ejecutaba en la soledad de su cuartujo le dejaban por algunas horas en los labios y en el alma una sensación de señoría y delicadeza y entonces se reconvenía anteriores modales torpes, como si esos anteriores mo­dales fueran en desmedro de su auténtica y actual personalidad de señorita.
 
 Durante algunas horas su vida estaba inflamada de delicadeza penetrante y blanda como la fragancia de una crema perfumada, con vainilla, y le parecía sentir en su garganta las melifluas voces de los «sí» y de los «no» hasta hacerse la ilusión de que estaba respondiéndo­le a una deliciosa interlocutora que tenía una piel de zorro azul en torno del cuello.
 
