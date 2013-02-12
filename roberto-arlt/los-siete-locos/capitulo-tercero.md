@@ -733,7 +733,7 @@ Haffner se levantó, y mirándolo al Buscador de Oro, dijo:
 
 ## El Buscador de Oro
 
-Después que salió Haffner, Erdosain, que tenía deseos de conversar con el Buscador de Oro, se despidió del Astrólogo y el Mayor. Erdosain se encontraba nuevamente inquieto. Antes de retirarse, e! Astrólogo le dijo en un aparte:
+Después que salió Haffner, Erdosain, que tenía deseos de conversar con el Buscador de Oro, se despidió del Astrólogo y el Mayor. Erdosain se encontraba nuevamente inquieto. Antes de retirarse, el Astrólogo le dijo en un aparte:
 
 -No falte mañana a las 9, hay que cobrar el cheque.
 
@@ -779,7 +779,7 @@ Tan profunda era la decepción de Erdosain, que el Buscador de Oro agregó:
 
 -Que entre tantas mentiras, ésa sería una de las pocas verdades.
 
--En el fondo es verdad. El oro existe... hay que encontrarlo, nada más. Usted debía alegrarse de que todo se esté organizando para ir a buscarlo. ¿O cree que esos animales se moverán si no fueran empujados por las mentiras extraordinarias? ¡Ah! cuánto he pensado. En eso estriba lo grande de la teoría del Astrólogo: los hombres se sacuden sólo con mentiras. El le da a lo falso la consistencia de lo cierto; gentes que no hubieran caminando jamás para alcanzar nada, tipos deshechos por todas las desilusiones, resucitan en la virtud de sus men­tiras. ¿Quiere usted, acaso, algo más grande? Fíjese que en la realidad ocurre lo mismo y nadie lo condena. Sí, todas las cosas son apariencias... dése cuenta... no hay hombre que no admita las pequeñas y estúpidas mentiras que rigen el funcionamiento de nuestra sociedad. ¿Cuál es el pecado del Astrólogo? Substituir una mentira insignificante por una mentira elocuente, enorme, trascendental. El Astrólogo, con sus falsedades, no parece un hombre extraordinario, y no lo es... y lo es; lo es... porque no saca provecho personal de sus mentiras, y no lo es porque él no hace otra cosa que aplicar un principio viejo puesto en uso por todos los estafadores y reorganizadores de la humanidad. Si algún día se escribe la historia de ese hombre, los que la lean y tengan un poco de sangre fría, se dirán: Era grande, porque para alcanzar de cualquier charlatán. Y lo que a nosotros nos parece novelesco, e inquietante, no es nada más que la zozobra de los espíritus débiles y mediocres, que sólo creen en el éxito cuando los medios para alcanzarlo son complicados, misteriosos, y no simples. Y sin embar­go usted debía saber que los grandes actos son sencillos, como la prueba del huevo de Colón.
+-En el fondo es verdad. El oro existe... hay que encontrarlo, nada más. Usted debía alegrarse de que todo se esté organizando para ir a buscarlo. ¿O cree que esos animales se moverán si no fueran empujados por las mentiras extraordinarias? ¡Ah! cuánto he pensado. En eso estriba lo grande de la teoría del Astrólogo: los hombres se sacuden sólo con mentiras. Él le da a lo falso la consistencia de lo cierto; gentes que no hubieran caminando jamás para alcanzar nada, tipos deshechos por todas las desilusiones, resucitan en la virtud de sus men­tiras. ¿Quiere usted, acaso, algo más grande? Fíjese que en la realidad ocurre lo mismo y nadie lo condena. Sí, todas las cosas son apariencias... dése cuenta... no hay hombre que no admita las pequeñas y estúpidas mentiras que rigen el funcionamiento de nuestra sociedad. ¿Cuál es el pecado del Astrólogo? Substituir una mentira insignificante por una mentira elocuente, enorme, trascendental. El Astrólogo, con sus falsedades, no parece un hombre extraordinario, y no lo es... y lo es; lo es... porque no saca provecho personal de sus mentiras, y no lo es porque él no hace otra cosa que aplicar un principio viejo puesto en uso por todos los estafadores y reorganizadores de la humanidad. Si algún día se escribe la historia de ese hombre, los que la lean y tengan un poco de sangre fría, se dirán: Era grande, porque para alcanzar a concretar sus ideales sólo utilizaba los medios al alcance de cualquier charlatán. Y lo que a nosotros nos parece novelesco, e inquietante, no es nada más que la zozobra de los espíritus débiles y mediocres, que sólo creen en el éxito cuando los medios para alcanzarlo son complicados, misteriosos, y no simples. Y sin embar­go usted debía saber que los grandes actos son sencillos, como la prueba del huevo de Colón.
 
 -¿La verdad de la mentira?
 
@@ -789,7 +789,7 @@ Tan profunda era la decepción de Erdosain, que el Buscador de Oro agregó:
 
 -Completamente, y créame... seremos cuando menos los dueños del país... si no del mundo. Tenemos que serlo. Lo que proyecta el Astrólogo es la salvación del alma de los hombres agotados por la mecanización de nuestra civilización. Ya no hay ideales. No hay símbolos buenos ni malos. El Astrólogo, vez pasada hablaba de colonias que fundaban en el antiguo mundo los vagos que no se encontraban bien en su país. Nosotros haremos lo mismo, pero dándole a la Sociedad un sentido de juego enérgico... juego que seduce hasta el alma de los tenderos cuando van al cinematógrafo a ver una aventura de cow-boys. ¿Qué sabe usted, hermano, de los líos que pensamos armar?... En último extremo sembraremos bombas de trinitrotolueno para divertirnos un poco con el espanto de la canalla. ¿Qué cree usted que eran las viejas patotas y los malevos del arrabal? Hombres que no habían encontrado cauces donde lanzar su energía. Y entonces la desfogaban estropeándolo a un cajetilla o a un turco.
 
-Vea... Comodoro... Puerto Madryn, Trelew, Esquel, Arroyo Pescado, Camo Chileno, conoz­co todos los caminos y todas las soledades... Créalo... organizaremos un cuerpo de juventud admirable -se había entusiasmado-. ¿Usted cree que no hay oro? Me recuerda a las criaturas que en la mesa tienen los ojos más grandes que el estómago. En nuestro país todo es oro.
+Vea... Comodoro... Puerto Madryn, Trelew, Esquel, Arroyo Pescado, Campo Chileno, conoz­co todos los caminos y todas las soledades... Créalo... organizaremos un cuerpo de juventud admirable -se había entusiasmado-. ¿Usted cree que no hay oro? Me recuerda a las criaturas que en la mesa tienen los ojos más grandes que el estómago. En nuestro país todo es oro.
 
 Erdosain sentíase arrastrado por el calor del otro. El Buscador de Oro hablaba convulsivamente, guiñando los ojos, levantando ya una ceja, ya la otra, zamarreándolo amis­tosamente por el brazo.
 
@@ -801,9 +801,9 @@ Erdosain sentíase arrastrado por el calor del otro. El Buscador de Oro hablaba 
 
 Erdosain no se imaginaba tal violencia en el Buscador de Oro. El otro adivinó el pensamiento, porque dijo:
 
--Nosotros predicaremos la violencia, pero no aceptaremos en las células a los teóri­cos de la violencia, sino que aquel que quiera demostrarnos su odio a la actual civilización tendrá que darnos una prueba de su obediencia a la sociedad. ¿Se da cuenta usted ahora del objeto de la colonia? ¿El oro no es también una hermosa ilusión? El esfuerzo lo convertirá en un superhombre. Entonces se le otorgarán poderes. ¿No sucede lo mismo con las órdenes monacales? ¿No está así organizado el ejército? Pero, hombre, ¡no abra la boca! En las mismas empresas comerciales... por ejemplo, en la casa Gath y Chaves, en Harrods, me han contado los empleados que el personal se gobierna con una disciplina junto a la cual la disciplina militares un juguete. Ya ve, Erdosain, que nosotros no inventamos nada. Sustitui­mos un fin mezquino por un fin extraordinario, nada más.
+-Nosotros predicaremos la violencia, pero no aceptaremos en las células a los teóri­cos de la violencia, sino que aquel que quiera demostrarnos su odio a la actual civilización tendrá que darnos una prueba de su obediencia a la sociedad. ¿Se da cuenta usted ahora del objeto de la colonia? ¿El oro no es también una hermosa ilusión? El esfuerzo lo convertirá en un superhombre. Entonces se le otorgarán poderes. ¿No sucede lo mismo con las órdenes monacales? ¿No está así organizado el ejército? Pero, hombre, ¡no abra la boca! En las mismas empresas comerciales... por ejemplo, en la casa Gath y Chaves, en Harrods, me han contado los empleados que el personal se gobierna con una disciplina junto a la cual la disciplina militar es un juguete. Ya ve, Erdosain, que nosotros no inventamos nada. Sustitui­mos un fin mezquino por un fin extraordinario, nada más.
 
-Erdosain se sentía humillado frente al Buscador de Oro. Envidiábale al otro la vio­lencia, le irritaban sus verdades gruesas e indiscutibles, y hubiera deseado contradecirlo, al tiempo que se decía:
+Erdosain se sentía humillado frente al Buscador de Oro. Le envidiaba al otro la vio­lencia, le irritaban sus verdades gruesas e indiscutibles, y hubiera deseado contradecirlo, al tiempo que se decía:
 
 -Yo soy menos personaje de drama que él, yo soy el hombre sórdido y cobarde de la ciudad. ¿Por qué no siento su agresividad y su odio?. Sí, tiene razón. Y sonrío a sus palabras, prudentemente, como si temiera que me dé una cachetada, y es que me asusta su violencia, me enoja su coraje.
 
@@ -882,7 +882,7 @@ A Erdosain le pareció que el alma de Hipólita le iba esmaltando serenamente la
 
 -Eso mismo. Un frenético. Llegó a aceptar un envite de cinco mil pesos en una mesa de poker. Vendió mis joyas, un collar que me había regalado un amigo...
 
--Pero ¿cómo?... ¿Ese collar usted no se lo regaló a la sirvienta poco antes de casarse con él? Así me dijo él. Que usted le regaló el col lar y la vajilla de plata... y el cheque de diez mil pesos que le regaló el otro...
+-Pero ¿cómo?... ¿Ese collar usted no se lo regaló a la sirvienta poco antes de casarse con él? Así me dijo él. Que usted le regaló el collar y la vajilla de plata... y el cheque de diez mil pesos que le regaló el otro...
 
 -¡Pero usted cree que estoy loca!... ¿Por qué iba a regalarle a mi sirvienta un collar de perlas?
 
@@ -904,7 +904,7 @@ A Erdosain le pareció que el alma de Hipólita le iba esmaltando serenamente la
 
 -Siempre la manía de las grandezas...
 
--Le prevengo que en parte yo también creí después de eso en el éxito de la martingala. El había jugado de acuerdo a los números que figuraban en su tabla de cálculos, y enton­ces para hacer saltar la banca retiró tres mil pesos del banco... Estaban a mi nombre, recuer­do, y más los seis mil quinientos... Había pagado unas cuentas de la farmacia... Salimos para Montevideo... y lo perdió todo.
+-Le prevengo que en parte yo también creí después de eso en el éxito de la martingala. Él había jugado de acuerdo a los números que figuraban en su tabla de cálculos, y enton­ces para hacer saltar la banca retiró tres mil pesos del banco... Estaban a mi nombre, recuer­do, y más los seis mil quinientos... Había pagado unas cuentas de la farmacia... Salimos para Montevideo... y lo perdió todo.
 
 -¿Cuánto tardó?
 
@@ -912,15 +912,15 @@ A Erdosain le pareció que el alma de Hipólita le iba esmaltando serenamente la
 
 -Sería para darme una mejor idea de usted. ¿Y en el viaje, cómo les fue?
 
--Nada... no dijo una palabra. Eso sí, tenía los ojos vidriosos, la cara como deshecha, relajada, ¿sabe? En cuanto llegamos a Buenos Aires se acostó... era un día lunes. Se quedó hasta el anochecer en la cama, luego fue a la calle, no sé por qué me daba en el corazón de que algo iba a suceder... A las diez de la noche no había vuelto aún, y entonces me acosté; a eso de la una de la madrugada me despertaron sus pasos en el cuarto, yo iba a encender la luz cuando él dio un gran salto y tomándome de un brazo, usted sabe la espantosa fuerza que tiene, en camisón me sacó de la cama y arrastrándome por los pasillos me llegó hasta la puerta del hotel.
+-Nada... no dijo una palabra. Eso sí, tenía los ojos vidriosos, la cara como deshecha, relajada, ¿sabe? En cuanto llegamos a Buenos Aires se acostó... era un día lunes. Se quedó hasta el anochecer en la cama, luego fue a la calle, no sé por qué me daba en el corazón de que algo iba a suceder... A las diez de la noche no había vuelto aún, y entonces me acosté; a eso de la una de la madrugada me despertaron sus pasos en el cuarto, yo iba a encender la luz cuando él dio un gran salto y tomándome de un brazo, usted sabe la espantosa fuerza que tiene, en camisón me sacó de la cama y arrastrándome por los pasillos me llevó hasta la puerta del hotel.
 
 -¿Y usted?
 
--Yo no gritaba porque sabía que lo iba a enfurecer. Ya en la puerta del hotel se quedó mirándome como si no me conociera, con la frente hecha un bulto de arrugas, los ojos gran­des. Corría un viento que hacía doblarse los árboles, yo me tapaba con los brazos, y él, sin decir palabra, no hacía más que mirarme, cuando frente a nosotros se detuvo un vigilante, mientras que de atrás lo agarraba por los brazos el portero, que se había despertado con el ruido. Y él gritaba que lo podían escuchar desde la esquina: Esta es la ramera... la que amó a los rufianes que tienen la carne como la carne del mulo...»
+-Yo no gritaba porque sabía que lo iba a enfurecer. Ya en la puerta del hotel se quedó mirándome como si no me conociera, con la frente hecha un bulto de arrugas, los ojos gran­des. Corría un viento que hacía doblarse los árboles, yo me tapaba con los brazos, y él, sin decir palabra, no hacía más que mirarme, cuando frente a nosotros se detuvo un vigilante, mientras que de atrás lo agarraba por los brazos el portero, que se había despertado con el ruido. Y él gritaba tanto que lo podían escuchar desde la esquina: «Ésta es la ramera... la que amó a los rufianes que tienen la carne como la carne del mulo...»
 
 -¿Pero cómo se acuerda usted de esas palabras?
 
--Todo lo que pasó es como si lo estuviera viendo ahora. El, entre una hoja de la puerta, tironeando para adentro; desde afuera el vigilante estirándolo, mientras el portero lo abrazaba por la garganta para hacerle perder fuerzas, y yo en el quicio esperando que eso terminara, pues se habían juntado varias personas que en vez de ayudarlo al vigilante se entretenían en mirarme a mí. Menos mal que yo usé siempre un largo camisón de noche... Por fin, con la ayuda de otros vigilantes a quienes avisó un mozo desde adentro con llamadas de auxilio, pudieron sacarlo para la comisaría.
+-Todo lo que pasó es como si lo estuviera viendo ahora. Él, entre una hoja de la puerta, tironeando para adentro; desde afuera el vigilante estirándolo, mientras el portero lo abrazaba por la garganta para hacerle perder fuerzas, y yo en el quicio esperando que eso terminara, pues se habían juntado varias personas que en vez de ayudarlo al vigilante se entretenían en mirarme a mí. Menos mal que yo usé siempre un largo camisón de noche... Por fin, con la ayuda de otros vigilantes a quienes avisó un mozo desde adentro con llamadas de auxilio, pudieron sacarlo para la comisaría.
 
 Creían que estaba borracho... pero era un ataque de locura... Así lo diagnosticó el médico. Deliraba con el arca de Noé...
 
@@ -934,7 +934,7 @@ Creían que estaba borracho... pero era un ataque de locura... Así lo diagnosti
 
 -¡Qué colosal!
 
--La indignación de esa gente usted no se la imagina. Una día de él... pero ¡para qué contar tantas mezquindades!... ¿no le parece? La vida es así y listo. Nos echaron y nos fui­mos. Paciencia, mala suerte.
+-La indignación de esa gente usted no se la imagina. Una tía de él... pero ¡para qué contar tantas mezquindades!... ¿no le parece? La vida es así y listo. Nos echaron y nos fui­mos. Paciencia, mala suerte.
 
 -Lo raro es que usted haya sido sirvienta.
 
@@ -942,7 +942,7 @@ Creían que estaba borracho... pero era un ataque de locura... Así lo diagnosti
 
 -Es que usted no causa esa impresión...
 
--Gracias... el caso es que al salir del hotel tuve que empeñar un anillo... y necesito administrare! poco dinero que tengo...
+-Gracias... el caso es que al salir del hotel tuve que empeñar un anillo... y necesito administrar el poco dinero que tengo...
 
 -¿Y la farmacia?
 
@@ -980,7 +980,7 @@ Mas de pronto, encocorado contra Hipólita por un pensamiento que acababa de res
 
 -Es evidente. Usted llega aquí, me habla de todo este drama con una tranquilidad que asombra... y naturalmente, entonces... ¿qué es lo que uno va a pensar de usted?
 
-Al decir estas palabras, Erdosain había comenzado a pasearse en el reducido espacio de la habitación. Sentíase inquieto, y de reojo examinaba el ovalado rostro pecoso, con las finas cejas rojas bajo la visera verde del sombrero, y los labios como inflamados, mientras que las dos alas de cabello color de cobre ceñían las sienes cubriendo las orejas, y las pupilas transparentes lanzaban haces de mirada.
+Al decir estas palabras, Erdosain había comenzado a pasearse en el reducido espacio de la habitación. Se sentía inquieto, y de reojo examinaba el ovalado rostro pecoso, con las finas cejas rojas bajo la visera verde del sombrero, y los labios como inflamados, mientras que las dos alas de cabello color de cobre ceñían las sienes cubriendo las orejas, y las pupilas transparentes lanzaban haces de mirada.
 
 -No tiene casi senos -pensó Erdosain. Hipólita miraba en redor; de pronto, sonriendo amablemente, le preguntó:
 
@@ -994,7 +994,7 @@ Hipólita se levantó:
 
 -M'hijito, yo nunca he hecho comedias. He venido a usted, sencillamente, porque sabía que usted era su mejor amigo. ¿Qué quiere?... ¿Que me ponga a llorar como una Mag­dalena si no lo siento?... Ya he llorado bastante...
 
-Ella también se había puesto de pie. Lo miraba con fijeza, pero la dureza de líneas que estaba rígida bajo la epidermis de su semblante como una armadura de voluntad se descompuso de fatiga. Con la cabeza inclinada ligeramente a un costado, a Erdosain le recor­dó a su esposa... bien podía ser ella... estaba en la puerta de una estancia desconocida... el capitán, indiferente, la miraba marchar ara siempre y no la detenía... la calle se abría ante ella... quizá fuera a parar a un hotel de muros sucios, y entonces, apiadado, dijo:
+Ella también se había puesto de pie. Lo miraba con fijeza, pero la dureza de líneas que estaba rígida bajo la epidermis de su semblante como una armadura de voluntad se descompuso de fatiga. Con la cabeza inclinada ligeramente a un costado, a Erdosain le recor­dó a su esposa... bien podía ser ella... estaba en la puerta de una estancia desconocida... el capitán, indiferente, la miraba marchar para siempre y no la detenía... la calle se abría ante ella... quizá fuera a parar a un hotel de muros sucios, y entonces, apiadado, dijo:
 
 -Discúlpeme... estoy un poco nervioso. Usted está en su casa. Lo único que siento es que me haya encontrado sin dinero. Pero mañana tendré.
 
@@ -1002,7 +1002,7 @@ Hipólita volvió a ocupar la silla y Erdosain, al tiempo que caminaba se tomó 
 
 -Es pesada la vida... ¿eh?...
 
-La intrusa miraba en silencio la punta de su zapa tito. Levantó los ojos y una arruga fina estrió su frente pecosa. Luego:
+La intrusa miraba en silencio la punta de su zapatito. Levantó los ojos y una arruga fina estrió su frente pecosa. Luego:
 
 -Usted parece que está preocupado. ¿Le pasa algo?
 
@@ -1010,7 +1010,7 @@ La intrusa miraba en silencio la punta de su zapa tito. Levantó los ojos y una 
 
 -Un poco. Es violento...
 
--¡Qué curioso! Quisiera representármelo en el manicomio y no puedo. Apenas si distingo un pedazo de cara y un ojo... Le prevengo que yo presentí el desastre. Le encontré una mañana, me contó todo y de pronto tuve la impresión de que sería desdichada a su lado... pero usted debe estar cansada. Yo tengo que salir. Le voy a decir a la patrona que le sirva la cena aquí.
+-¡Qué curioso! Quisiera representármelo en el manicomio y no puedo. Apenas sí distingo un pedazo de cara y un ojo... Le prevengo que yo presentí el desastre. Le encontré una mañana, me contó todo y de pronto tuve la impresión de que sería desdichada a su lado... pero usted debe estar cansada. Yo tengo que salir. Le voy a decir a la patrona que le sirva la cena aquí.
 
 -No... no tengo ganas.
 
@@ -1047,7 +1047,7 @@ Luego pensó que Ergueta ya estaba loco. Recordó las palabras del otro cuando e
 
 Una muchedumbre oscura se movía allí, en el interior de su alma; luego la sombra, como una nube, cubría de cansancio su pena, y junto a la mesita donde dormían los pequeñitos ladrones adultos, se erguían gigantescos y morrudos como un cráneo de buey, el relieve del patrón de la fonda, con los dedos engrampados en las musculosas bolas de sus brazos. Y otro recuerdo le demostraba cuán exacto era su presentimiento de inminente caída, cuando aún no había ni pensado defraudar a la Azucarera, pero ya buscaba en los parajes siniestros una imagen de su posible personalidad.
 
-¡Cuántos senderos había en su cerebro! Pero ahora iba hacia el que conducía a la fonda, la fonda enorme que hundía su cubo taciturno como una carnicería hasta los últimos repliegues de su cerebelo, y aunque el relieve de ese cubo que nacía en su frente y terminaba en la nuca, era de veinte grados, las minúsculas mesitas con los ladroncitos adultos no resba­laban por el piso como hubiera sido lógico, sino que el cubo se enderezaba bajo el contrapeso de una costumbre instantánea, la de pensar en él, y su carne acostumbrada ya a la velocidad multiplicada por la masa del tren eléctrico, se dejaba estar en una inercia vertiginosa; y ahora que el recuerdo había vencido la inercia de todas las células, aparecía ante sus ojos la fonda, como un cuadrilátero exactamente recortado. El cual parecía que ahondaba sus rectas al interior de su pecho, de modo que casi podía admitir que si se mirara a un espejo, el frente de su cuerpo presentara un salón estrecho, ahondado hacia la perspectiva del espejo. Y él cami­naba en el interior de sí mismo, sobre un pavimento enfangado de salivazos y aserrín, y cuyo marco perfecto se biselaba hacia lo infinito de las sensaciones adyacentes.
+¡Cuántos senderos había en su cerebro! Pero ahora iba hacia el que conducía a la fonda, la fonda enorme que hundía su cubo taciturno como una carnicería hasta los últimos repliegues de su cerebelo, y aunque el relieve de ese cubo que nacía en su frente y terminaba en la nuca, era de veinte grados, las minúsculas mesitas con los ladroncitos adultos no resba­laban por el piso como hubiera sido lógico, sino que el cubo se enderezaba bajo el contrapeso de una costumbre instantánea, la de pensar en él, y su carne acostumbrada ya a la velocidad multiplicada por la masa del tren eléctrico, se dejaba estar en una inercia vertiginosa; y ahora que el recuerdo había vencido la inercia de todas las células, aparecía ante sus ojos la fonda, como un cuadrilátero exactamente recortado, el cual parecía que ahondaba sus rectas al interior de su pecho, de modo que casi podía admitir que si se mirara a un espejo, el frente de su cuerpo presentaría un salón estrecho, ahondado hacia la perspectiva del espejo. Y él cami­naba en el interior de sí mismo, sobre un pavimento enfangado de salivazos y aserrín, y cuyo marco perfecto se biselaba hacia lo infinito de las sensaciones adyacentes.
 
 Y pensaba que si la Coja hubiera estado a su lado, él le diría refiriéndose a un recuer­do:
 
@@ -1069,7 +1069,7 @@ La luz entraba al salón por los vidrios de la banderola teñidos de azul, de fo
 
 En aquel cubo sombrío, de techo cruzado por enormes vigas, y que la cocina de la fonda inundaba de neblinas de menestra y de sebo, se movía el tumulto oscuro, una «merza» de ladrones, sujetos de frentes sombreadas por las viseras de las gorras y pañuelos flojamente anudados en el escote de las camisetas.
 
-De once a dos de la tarde se apeñuscaban en torno de las grasientas mesas de marmol, para chupar conchas de almejas podridas o jugar a los naipes entre vasos de vino.
+De once a dos de la tarde se apeñuscaban en torno de las grasientas mesas de mármol, para chupar conchas de almejas podridas o jugar a los naipes entre vasos de vino.
 
 En aquella bruma hedionda los semblantes afirmaban gestos canallescos, se veían jetas como alargadas por la violencia de una estrangulación, las mandíbulas caídas y los labios aflojados en forma de embudo; negros de ojos de porcelana y brillantes dentaduras entre la almorrana de sus belfos, que le tocaban el trasero a los menores haciendo rechinar los dientes; rateros y «batidores» con perfil de tigre, la frente hundida y la pupila tiesa.
 
@@ -1111,7 +1111,7 @@ Una luz agria convulsionaba su pupila. Malhumorado insistió apartando de un man
 
 El tren eléctrico dejó atrás Flores. Erdosain, apoltronado en el sillón, recordó que lo miró seriamente al farmacéutico, en cuyo rostro se difundía ese acechador movimiento de los músculos que le da al semblante una expresión malévola.
 
--¿Y con quién te casas?
+-¿Y con quién te casás?
 
 El semblante de Ergueta empalideció hasta las orejas. A medida que inclinaba su cabeza hacia Erdosain, guiñaba un párpado, mientras que el otro ojo inmóvil trataba de reco­ger toda la sorpresa que lo demudaría dentro de un segundo a Erdosain:
 
@@ -1157,13 +1157,13 @@ El tren eléctrico cruzaba ahora por Villa Luro. Entre montes de carbón y los g
 
 Erdosain recogió la frase del farmacéutico:
 
--¿Así que vos crees que los tiempos han llegado?...
+-¿Así que vos creés que los tiempos han llegado?...
 
--Sí, tienen que ocurrir cosas terribles. ¿No te acordás que vos una vez me dijiste que el presidente Roosvelt había hecho un gran elogio de la Biblia?
+-Sí, tienen que ocurrir cosas terribles. ¿No te acordás que vos una vez me dijiste que el presidente Roosevelt había hecho un gran elogio de la Biblia?
 
 -Sí... pero hace mucho.
 
-Erdosain respondió con tales palabras porque en realidad no recordaba jamás haber­le hecho una cita de esa naturaleza al farmacéutico. Este continuó:
+Erdosain respondió con tales palabras porque en realidad no recordaba jamás haber­le hecho una cita de esa naturaleza al farmacéutico. Éste continuó:
 
 -Afuera he leído bastante la Biblia...
 
@@ -1183,7 +1183,7 @@ El otro repitió: «y salvaré la coja, y recogeré la descarriada», insistiend
 
 -Pero si Hipólita no es coja...
 
--No, pero ella es la descarriada y yo el fraudulento, el «hijo de perdición». He ido de burdel en burdel, y de angustia buscando el amor. Yo creía que era el amor físico y después leyendo ese libro que me iluminó comprendí que mi corazón buscaba el amor divino. ¿Te das cuenta? El corazón se orienta por su cuenta. Vos estás engrupido, querés hacer tu voluntad, y fallas... por qué fallas... es misterio... Luego un día, de golpe, sin saber cómo, se aparece la verdad. Y mirá que yo he vivido. «Hijo de perdición», ésa es mi vida. Papá antes de morir en Cosquín me escribió una carta terrible, entre vómitos de sangre y recriminándome, ¿sabes? Y la carta no la firmaba con su nombre, sino que ponía: «Tu padre El Maldito». ¿Te das cuenta? -y otra vez guiñó el párpado levantando de tal forma las cejas que Erdosain se preguntó:
+-No, pero ella es la descarriada y yo el fraudulento, el «hijo de perdición». He ido de burdel en burdel, y de angustia buscando el amor. Yo creía que era el amor físico y después leyendo ese libro que me iluminó comprendí que mi corazón buscaba el amor divino. ¿Te das cuenta? El corazón se orienta por su cuenta. Vos estás engrupido, querés hacer tu voluntad, y fallás... por qué fallás... es misterio... Luego un día, de golpe, sin saber cómo, se aparece la verdad. Y mirá que yo he vivido. «Hijo de perdición», ésa es mi vida. Papá antes de morir en Cosquín me escribió una carta terrible, entre vómitos de sangre y recriminándome, ¿sabés? Y la carta no la firmaba con su nombre, sino que ponía: «Tu padre El Maldito». ¿Te das cuenta? -y otra vez guiñó el párpado levantando de tal forma las cejas que Erdosain se preguntó:
 
 -¿No estará loco éste?
 
@@ -1223,15 +1223,15 @@ Mientras amasaba un cigarrillo, el farmacéutico contestó a una pregunta de Erd
 
 El farmacéutico observó su reloj.
 
--¿Tenes que hacer?
+-¿Tenés que hacer?
 
 -Sí, dentro de un rato voy a casa a ver a Hipólita.
 
--Esta vez me asombré -contábale más tarde Erdosain al cronista de esta historia -. La casa de la familia Ergueta era suntuosa y el espíritu de la gente que allí se movía como los caracoles, absolutamente conservador y rutinario. Erdosain le preguntó:
+-Esta vez me asombré -le contaba más tarde Erdosain al cronista de esta historia-. La casa de la familia Ergueta era suntuosa y el espíritu de la gente que allí se movía como los caracoles, absolutamente conservador y rutinario. Erdosain le preguntó:
 
 -¿Cómo?... ¿La llevaste a tu casa?
 
--¡Y las historias que tuve que inventar!...Ella no quería ir, mejor dicho, aceptaba de ir, pero como lo que es...
+-¡Y las historias que tuve que inventar!... Ella no quería ir, mejor dicho, aceptaba de ir, pero como lo que es...
 
 -¿Fue capaz?...
 
@@ -1245,7 +1245,7 @@ Erdosain iba a preguntarle si su madre creyó semejante mentira, como si Hipóli
 
 -Me dijo que se la llevara inmediatamente. Cuando se la presenté, la abrazó y le dijo: «¿Te ha respetado, hija?» Y ella, bajando los ojos, le contestó: «Sí, mamá». Lo cual es cierto. Te prevengo que mamá y mi hermana Sara están encantadas con Hipólita.
 
-En aquel momento Erdosain tuvo el presentimiento que esos desdichados se habían preparado un desastre futuro. No se equivocó, y al recordar ahora en el tren eléctrico la certidumbre que no había fallado, se dijo al tiempo que pasaba por Liniers: «Es curioso, las primeras impresiones no lo engañan nunca a uno», y al preguntarle a Ergueta cuándo se casaba, éste le respondió:
+En aquel momento Erdosain tuvo el presentimiento de que esos desdichados se habían preparado un desastre futuro. No se equivocó, y al recordar ahora en el tren eléctrico la certidumbre que no había fallado, se dijo al tiempo que pasaba por Liniers: «Es curioso, las primeras impresiones no lo engañan nunca a uno», y al preguntarle a Ergueta cuándo se casaba, éste le respondió:
 
 -Mañana salimos para Montevideo. Nos casamos allá, por si acaso no nos entende­mos. -Al pronunciar estas palabras volvió a guiñar el párpado sonriendo cínicamente, y agre­gó-: No soy ningún caído del catre, che.
 
@@ -1255,13 +1255,11 @@ A Erdosain le molestó ese lujo de precauciones. No pudiendo contenerse, le dijo
 
 Pero el farmacéutico se regodeaba con la suficiencia de un usurero a quien no le importan los insultos, si se los dirigen en el momento de pagar los intereses. Guarango, repuso:
 
-Pero el farmacéutico se regodeaba con la suficiencia de un usurero a quien no le importan los insultos, si se los dirigen en el momento de pagar los intereses. Guarango, repuso:
-
--Hay que ser turbo, che.
+-Hay que ser furbo, che.
 
 Erdosain estaba asombrado frente a tanta grosería.
 
-Pensó en la deliciosa criatura y se la imaginó soportando a ese bruto bajo un cielo oscurecido por grandes nubes de polvo e incendiado por un sol amarillo y espantoso. Ella se marchitaría como un helécho trasplantado a un pedregal. Ahora Erdosain lo examinó nueva­mente al farmacéutico pero con rabia.
+Pensó en la deliciosa criatura y se la imaginó soportando a ese bruto bajo un cielo oscurecido por grandes nubes de polvo e incendiado por un sol amarillo y espantoso. Ella se marchitaría como un helecho trasplantado a un pedregal. Ahora Erdosain lo examinó nueva­mente al farmacéutico pero con rabia.
 
 El jugador reparó en la malevolencia de su compañero y dijo:
 
