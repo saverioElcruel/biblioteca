@@ -4,7 +4,7 @@ title: El Hombre Neutro
 order: 2
 ---
 
-El Astrólogo miró alejarse a Erdosain, esperó que éste doblara en la
+El Astrólogo miró alejarse a Erdosain, esperó que este doblara en la
 esquina, y entró a la quinta murmurando:
 
 --Sí... pero Lenin sabía adónde iba.
@@ -22,12 +22,7 @@ Inexpresivamente levantó la vista hasta las nubes. Remurmuró:
 
 --El diablo sabe adónde vamos. Lenin sí que sabía...
 
-Sonó el cencerro que, suspendido de un elástico, servía de llamador en
-la puerta. El Astrólogo se encaminó a la entrada. Recortada por las
-tablas de la portezuela, distinguió la silueta de una mujer pelirroja.
-Se envolvía en un tapado color viruta de madera. El Astrólogo recordó lo
-que Erdosain le contara referente a la Coja en días anteriores, y avanzó
-adusto.
+Sonó el cencerro que, suspendido de un elástico, servía de llamador en la puerta. El Astrólogo se encaminó a la entrada. Recortada por las tablas de la portezuela, distinguió la silueta de una mujer pelirroja. Se envolvía en un tapado color viruta de madera. El Astrólogo recordó lo que Erdosain le contara referente a la Coja en días anteriores, y avanzó adusto.
 
 Cuando se detuvo en la portezuela, Hipólita lo examinó sonriendo. "Sin
 embargo, sus ojos no sonríen", pensó el Astrólogo, y al tiempo que abría
@@ -104,7 +99,7 @@ representamos ningún drama.
 
 --¿Sabe que es un cínico usted?
 
---Y usted una, charlatana. ¿Se puede saber lo que quiere?
+--Y usted una charlatana. ¿Se puede saber lo que quiere?
 
 Bajo la visera del sombrero verde, el rostro de Hipólita, bañado por el
 resplandor solar, apareció más fino y enérgico que una mascarilla de
@@ -412,7 +407,6 @@ dolor del nervio del cuerpo, que la civilización ha puesto al
 descubierto. Los artistas dicen: este nervio no es la vida; la vida es
 un hermoso rostro, un bello crepúsculo, una ingeniosa frase. Pero de
 ningún modo se acercan al dolor.
-
 A su vez, los ingenieros y los políticos dicen: para que el nervio no
 duela son necesarios tantos estrictos metros cuadrados de sol, y tantos
 gramos de mentiras poéticas, de mentiras sociales, de narcóticos
@@ -421,8 +415,7 @@ siglo... y el Cuerpo, el Hombre, la Verdad, sufren..., sufren, porque
 mediante el aburrimiento tienen la sensación de que existen como el
 diente podrido existe para nuestra sensibilidad cuando el aire toca el
 nervio.
-
-»Para no sufrir habría que olvidarse del cuerpo; y el hombre se olvida
+Para no sufrir habría que olvidarse del cuerpo; y el hombre se olvida
 del cuerpo cuando su espíritu vive intensamente; cuando su sensibilidad,
 trabajando fuertemente, hace que vea en su cuerpo la verdad inferior que
 puede servir a la verdad superior. Aparentemente estaría en
@@ -430,8 +423,7 @@ contradicción con lo que decía antes, pero no es así. Nuestra
 civilización se ha particularizado en hacer del cuerpo el fin, en vez
 del medio, y tanto lo han hecho fin, que el hombre siente su cuerpo y el
 dolor de su cuerpo, que es el aburrimiento.
-
-»El remedio que ofrecen los intelectuales, el Conocimiento, es estúpido.
+El remedio que ofrecen los intelectuales, el Conocimiento, es estúpido.
 Si usted conociera ahora todos los secretos de la mecánica o de la
 ingeniería y de la química, no sería un adarme más feliz de lo que es
 ahora. Porque esas ciencias no son las verdades de nuestro cuerpo.
@@ -475,9 +467,7 @@ usted. Además, que no puedo poseer a ninguna mujer. Estoy castrado.
 Entonces las palabras que ella le dijo a Erdosain esa noche nuevamente
 estallaron en su boca:
 
-«Cómo, ¿vos también?... un gran dolor... Entonces somos iguales... Yo tampoco
-he sentido nada, nunca, junto a ningún hombre... y sos... el único hombre.
-¡Qué vida!».
+--Cómo, ¿vos también?... un gran dolor... Entonces somos iguales... Yo tampoco he sentido nada, nunca, junto a ningún hombre... y sos... el único hombre. ¡Qué vida!
 
 Calló, contemplando pensativa los elevadísimos abanicos de los
 eucaliptos. Abrían conos diamantinos, chapados de sol, sobre la combada
@@ -724,7 +714,7 @@ quiero ayudarlo..."
 
 --¿Va a volver a la casa de Erdosain?
 
---No. Quiero estar sola y pensar. Necesito pensar... ―de pronto, Hipólita
+--No. Quiero estar sola y pensar. Necesito pensar... --de pronto, Hipólita
 se echó a reír.
 
 --¿De qué se ríe usted?
